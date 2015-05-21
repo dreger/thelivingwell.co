@@ -1,0 +1,26 @@
+---
+# Only the main Sass file needs front matter (the dashes are enough)
+---
+@charset "utf-8";
+
+html {
+  font-size: 16px;
+}
+
+.welcome {
+  max-width: 500px;
+  margin: 0 auto;
+  padding: 1rem;
+  text-align: center;
+  color: #444;
+  font-family: 'Lora', serif;
+}
+
+.logo {
+  max-width: 250px;
+}
+
+h1 {
+  font-weight: normal;
+  font-size: 2rem;
+}
