@@ -4,13 +4,36 @@
   {% include head.html %}
 
   <body>
-
-
-    <div class="site-content">
-        {{ content }}
+    <div class="site-wrapper">
+      <header class="site-header">
+        <a href="/home"><img class="site-header-logo" src="/assets/images/logo.png"></a>
+      </header>
+      
+      <div class="site-content">
+        <div class="sidebar">
+          <ul class="sidebar-nav">
+            <li class="sidebar-nav-item"><a href="/live/" class="sidebar-nav-item-link">live well</a></li>
+            <li class="sidebar-nav-item"><a href="/eat/" class="sidebar-nav-item-link">eat well</a></li>
+            <li class="sidebar-nav-item"><a href="/be/" class="sidebar-nav-item-link">be well</a></li>
+            <li class="sidebar-nav-item"><a href="/about/" class="sidebar-nav-item-link">about</a></li>
+          </ul>
+        </div>
+        
+        <div class="main">
+          {{ content }}
+        </div>
+      </div>
+      
+      <footer class="site-footer">
+        <div class="sidebar">
+        SIDEBAR
+        </div>
+        
+        <div class="main">
+        FOOTER MAIN
+        </div>
+      </footer>
     </div>
-
-
   </body>
 
 </html>
