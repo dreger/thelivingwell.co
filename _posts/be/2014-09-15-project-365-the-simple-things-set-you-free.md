@@ -1,5 +1,5 @@
 ---
-title: 'Project 365: The Simple things set you free'
+title: 'Project 365: The Simple things set you&nbsp;free'
 asset: 'bark'
 category: be
 ---

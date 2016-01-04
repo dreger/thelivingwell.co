@@ -31,7 +31,10 @@ h2,
 h3,
 h4,
 h5,
-h6 { font-weight: normal; }
+h6 { 
+  font-weight: normal; 
+  line-height: 1em; 
+}
 
 img {
   width: 100%; 
@@ -42,6 +45,8 @@ blockquote {
   padding: 2rem; 
   font-style: italic; 
 }
+
+li { margin-bottom: 1.6rem; }
 
 .site-wrapper {
   max-width: 960px; 
@@ -124,7 +129,7 @@ blockquote {
 .post-title {
   font-weight: normal; 
   color: $color; 
-  margin-bottom: 1.5rem; 
+  margin-bottom: 1rem; 
   a { color: $color; }
 }
 
