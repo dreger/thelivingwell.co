@@ -1,7 +1,7 @@
 ---
 title: 'Project 365: A year in review'
 asset: 'img-1568'
-categories: be
+category: be
 ---
 
 And just like that the year was through.

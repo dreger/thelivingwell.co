@@ -1,6 +1,6 @@
 ---
 title: 'Project 365: Rules'
-categories: be
+category: be
 ---
 
 Tomorrow starts my Project 365: A year of nothing new. For my own accountability, I thought it best to have an outline of what my year ahead will look like. For those of you wanting to join me on this journey, pick your own set of rules and commit! This doesn't have to look the same for everyone.

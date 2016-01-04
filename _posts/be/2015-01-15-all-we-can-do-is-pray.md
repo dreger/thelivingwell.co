@@ -1,6 +1,6 @@
 ---
 title: All we can do is pray
-categories: be
+category: be
 asset: 'grass'
 ---
 

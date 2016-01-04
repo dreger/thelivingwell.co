@@ -1,6 +1,6 @@
 ---
 title: Call me out upon the water
-categories: be
+category: be
 asset: 'img-1191'
 ---
 This is my season of letting go. Asking God to call me out upon the water to test my faith.

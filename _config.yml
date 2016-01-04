@@ -1,11 +1,37 @@
 # Site settings
 title: The Living Well
-email: your-email@domain.com
 description: Coming soon.
 baseurl: "" # the subpath of your site, e.g. /blog/
-url: "http://yourdomain.com" # the base hostname & protocol for your site
-twitter_username: jekyllrb
-github_username:  jekyll
+url: "http://thelivingwell.co" 
+permalink: /:categories/:title.html
 
 # Build settings
 markdown: kramdown
+
+
+defaults:
+  -
+    scope:
+      path: ""
+      type: "posts"
+    values:
+      layout: "post"
+      category: post
+  -
+    scope:
+      path: "be"
+      type: "posts"
+    values:
+      category: be
+  -
+    scope:
+      path: "eat"
+      type: "posts"
+    values:
+      category: eat
+  -
+    scope:
+      path: "live"
+      type: "posts"
+    values:
+      category: live

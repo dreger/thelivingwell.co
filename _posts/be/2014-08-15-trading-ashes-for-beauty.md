@@ -1,6 +1,6 @@
 ---
 title: Trading ashes for beauty 
-categories: be
+category: be
 asset: 'img-1703'
 ---
 

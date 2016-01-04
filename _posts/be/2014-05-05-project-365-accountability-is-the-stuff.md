@@ -1,7 +1,7 @@
 ---
 title: 'Project 365: Accountability is the stuff'
 asset: 'dandelion'
-categories: be
+category: be
 ---
 
 I am overwhelmed by the outpouring of texts, phone calls, emails and Facebook messages. The love I have received in the last week, and today especially, has been humbling.

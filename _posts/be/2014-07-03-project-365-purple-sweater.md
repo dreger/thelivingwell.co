@@ -1,7 +1,7 @@
 ---
 title: 'Project 365: Purple Sweater'
 asset: 'thin-pink'
-categories: be
+category: be
 ---
 
 I used to get made fun of in middle school. A lot. My skin was always pale. I was never popular. My hair, had a life of its own. I spent most of my middle and high school years in braces. I was too shy to speak up for myself. I had one best friend.

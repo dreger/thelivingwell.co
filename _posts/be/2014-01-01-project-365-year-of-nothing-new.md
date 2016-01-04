@@ -1,7 +1,7 @@
 ---
 title: 'Project 365: Year of Nothing New'
 asset: 'a-year-of-nothing-new'
-categories: be
+category: be
 ---
 
 I've been thinking about this and trying to write about it for the last month. Without further self scrutiny on my behalf, here it is.
@@ -12,7 +12,7 @@ Why? Why not? If you think I've plum lost my mind, feel free to stop reading. If
 
 Lately I've been wrestling with the Lord on having a heart as written in 1 John 2:15 //
 
-Do not love this world nor the things it offers you, for when you love the world, you do not have the love of the Father in you. For the world offers only a craving for physical pleasure, a craving for everything we see, and pride in our achievements and possessions. These are not from the Father, but are from this world. And this world is fading away, along with everything that people crave. But anyone who does what pleases God will live forever.
+> Do not love this world nor the things it offers you, for when you love the world, you do not have the love of the Father in you. For the world offers only a craving for physical pleasure, a craving for everything we see, and pride in our achievements and possessions. These are not from the Father, but are from this world. And this world is fading away, along with everything that people crave. But anyone who does what pleases God will live forever.
 
 I live in this world, and I often love what is of it. I do. Guilty.
 

@@ -1,7 +1,7 @@
 ---
 title: 'Project 365: The Simple things set you free'
 asset: 'bark'
-categories: be
+category: be
 ---
 
 On my 25th birthday I gave myself a trio of life statements:

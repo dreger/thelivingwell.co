@@ -1,6 +1,6 @@
 ---
 title: When head meets heart
-categories: be
+category: be
 asset: 'rocks'
 ---
 
