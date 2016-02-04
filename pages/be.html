@@ -6,7 +6,7 @@ category: be
 {% for post in site.categories.be %}
 <a class="post-snippet" href="{{ post.url }}">
   {% if post.asset %}
-    <img class="post-snippet-asset" src="/assets/images/{{ post.asset }}.jpg">
+    <span class="post-snippet-asset"><img src="/assets/images/{{ post.asset }}.jpg"></span>
   {% endif %}
   <span class="post-snippet-text">
     <h2 class="post-snippet-title">{{ post.title }}</h2>
