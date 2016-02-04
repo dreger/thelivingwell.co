@@ -2,6 +2,7 @@
 layout: post
 permalink: /about/
 asset: 'about'
+category: about
 ---
 # about the living well
 

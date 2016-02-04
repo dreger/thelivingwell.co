@@ -1,0 +1,19 @@
+---
+layout: default
+permalink: /eat/
+category: eat
+---
+<hr class="headspace">
+<h2>coming soon</h2>
+
+{% for post in site.categories.eat %}
+<a class="post-snippet" href="{{ post.url }}">
+  {% if post.asset %}
+    <img class="post-snippet-asset" src="/assets/images/{{ post.asset }}.jpg">
+  {% endif %}
+  <span class="post-snippet-text">
+    <h2 class="post-snippet-title">{{ post.title }}</h2>
+    <span class="post-snippet-excerpt">{{ post.content | strip_html | truncate: 140 }}</span>
+  </span>
+</a>
+{% endfor %}

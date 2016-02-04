@@ -3,7 +3,7 @@ title: The Living Well
 description: Coming soon.
 baseurl: "" # the subpath of your site, e.g. /blog/
 url: "http://thelivingwell.co" 
-permalink: /:categories/:title.html
+permalink: /:categories/:title
 
 # Build settings
 markdown: kramdown
