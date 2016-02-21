@@ -2,6 +2,7 @@
 title: When head meets heart
 category: be
 asset: 'rocks'
+published: false
 ---
 
 For some reason seeing my name at the top right corner of my bible stopped me dead in my tracks today.
