@@ -1,3 +1,8 @@
+# The Living Well
+
+Post template: 
+
+```
 ---
 title: "This is a title!"
 asset: "filename of image (assumes a .jpg extension)" 
@@ -28,4 +33,4 @@ FORMATTING
 _Italics are cool too._
 
 Sometimes you want [a link](http://google.com).
-
+```
