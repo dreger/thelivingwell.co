@@ -6,6 +6,7 @@ published: true
 ---
 
 Ok, let’s be real. This isn’t philosophical. But “food philosophy” sounds way better than “Sarah’s thoughts on food, not really founded on anything specific.” A philosophy is, after all: a set of ideas about how to do something or how to live.
+
 My thoughts on food, are the same for being well and living well - its about freedom. It’s about garnering self-discipline but not being chained to restrictions. It’s about finding freedom in food and not guilt. No stress eating, no yo-yo dieting and no condemning. Just a balanced approach to eating and enjoying food.
 
 The choices I make arewhat works for me. It is not a diet I endorse, but a lifestyle I choose. I have the power to choose and I choose to eat well.
