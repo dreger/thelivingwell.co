@@ -1,6 +1,5 @@
 ---
 title: "practicing imperfection"
-asset: "filename of image (assumes a .jpg extension)" 
 category: live
 published: true
 ---
