@@ -1,5 +1,11 @@
 # The Living Well
 
+Links to new post forms: 
+
+- [Be](https://github.com/kyledreger/thelivingwell.co/new/gh-pages/_posts/be)
+- [Eat](https://github.com/kyledreger/thelivingwell.co/new/gh-pages/_posts/eat)
+- [Live](https://github.com/kyledreger/thelivingwell.co/new/gh-pages/_posts/live)
+
 Post template: 
 
 ```
@@ -13,12 +19,7 @@ published: false
 INSTRUCTIONS
 
 1. Copy the entiriety of this document. 
-2. Which category is this post? 
-
-Be: https://github.com/kyledreger/thelivingwell.co/new/gh-pages/_posts/be
-Eat: https://github.com/kyledreger/thelivingwell.co/new/gh-pages/_posts/eat
-Live: https://github.com/kyledreger/thelivingwell.co/new/gh-pages/_posts/live
-
+2. Create a new file with the correct link above. 
 3. Name the file as YYYY-MM-DD-title-of-post.md
 4. Paste in this template, delete the content, and start writing!
 
