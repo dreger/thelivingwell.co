@@ -1,6 +1,6 @@
 ---
 title: 'Project 365: The Simple things set you&nbsp;free'
-asset: 'bark'
+asset: 'rocks'
 category: be
 ---
 
