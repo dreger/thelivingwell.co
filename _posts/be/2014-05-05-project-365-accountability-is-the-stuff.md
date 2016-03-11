@@ -1,6 +1,6 @@
 ---
 title: 'Project 365: Accountability is the stuff'
-asset: 'dandelion'
+asset: 'autumn-in-ohio'
 category: be
 ---
 
