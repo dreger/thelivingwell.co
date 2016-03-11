@@ -11,9 +11,9 @@ I'm convinced we are free to be our best selves when we are pursuing wellness in
 Wellness is not about feeling well all the time. If we believe that to be true, we will always come up short. Being well is about leaning into the places where we feel messy and broken and allowing God to do work. We pursue wellness and God is the one who makes it so.
 I’ve designed the Living Well in three categories, because my brain needs organization in that way and I like the number three.
 
-**<p>Be Well:** Spirituality and walking with Jesus - who is our living water from the living well.</p>
-**<p>Eat Well:** Food, food, food. Because, I love food and food is fuel.</p>
-**<p>Live Well:** Practically living it out. What wellness looks like in my life from day-to-day.</p>
+**Be Well:** Spirituality and walking with Jesus - who is our living water from the living well.
+**Eat Well:** Food, food, food. Because, I love food and food is fuel.
+**Live Well:** Practically living it out. What wellness looks like in my life from day-to-day.
 
 This corner of the internet, much like my life, is a work in progress. Sit with your messiness, and read about mine. It’ll make you feel like you’re not the only one, promise. 
 
