@@ -1,7 +1,7 @@
 ---
 layout: post
 permalink: /about/
-asset: 'about'
+asset: 'hustle'
 category: about
 ---
 # the living well
