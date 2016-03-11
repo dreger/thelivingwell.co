@@ -1,6 +1,5 @@
 ---
 layout: post
-permalink: /about/
 asset: 'hustle'
 category: about
 ---
