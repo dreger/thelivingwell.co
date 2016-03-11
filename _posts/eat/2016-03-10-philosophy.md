@@ -1,6 +1,6 @@
 ---
 title: "food philosophy"
-asset: "bestill"
+asset: "philosophy"
 category: eat
 published: true
 ---
