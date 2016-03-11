@@ -18,13 +18,14 @@ Part of my fun is coming up with healthier ways to indulge, because I am a desse
 It’s all about balance. If we say no to everything remotely indulgent, is that really living? Not in my opinion. So instead, I make healthier versions of the things I love. To me, it’s even more fulfilling when it tastes good and I know it is doing good for my body.
 Here’s an overview of what my nutrition game looks like.
 
-**I calculate Macros.** IIFYM (if it fits your macros) is how I balance my food. My macros are adjusted based on my fitness goals. I track what I eat using an app and it helps me plan ahead. Not sure what IIFYM is? Check out this [tool] (https://healthyeater.com/iifym-myfitnesspal-tutorial) to calculate yours.
+**I calculate Macros.** IIFYM (if it fits your macros) is how I balance my food. My macros are adjusted based on my fitness goals. I track what I eat using an app and it helps me plan ahead. Not sure what IIFYM is? Check out this [tool](https://healthyeater.com/iifym-myfitnesspal-tutorial) to calculate yours.
 
 **I eat whole foods.** Organic, free range, grass fed, local (when we can), non GMO foods. For the most part, we stick to raw foods around here. I stick to this general rule: Real food doesn’t have ingredients, real food IS ingredients (and apparently doesn’t help with correct grammar.)
 
 **Lots of water!** I only drink water and coffee. French press, ya’ll. If you don’t have one, get one. It changes your coffee life forever. We hand grind the beans and it makes one legit cup of coffee. Ok - back to water. It’s the best thing you can do for your skin, muscles, organs, etc. I carry a bottle with me everywhere I go. Drink that H2O!
 
 Here’s what I don’t do:
+
 **Restrictive plans.** I am not a vegetarian or vegan, and I do not endorse paleo, atkins or any other restrictive eating lifestyle. We do not have any diseases or food allergies (other than my lame dairy intolerance) that require us to restrict any one food group.
 
 **Refined.** I limit are refined grains and sugar based on personal preference. Sugar is my big thing. I’ll bore you on that later, sister.
@@ -41,6 +42,6 @@ Earth shattering, right? I know. I’ll let it sink in.
 
 **Love to eat.** Don’t be a slave to food, afraid of food, or obsessed with eating food. The goal is a healthy love for the creation God has provided us.  A balanced love, free from guilt. 
 
-If you take only one thing from this post, let it be this: Food is not your enemy. Find what works for you, what makes you feel good and own it. Owning our health is something no one else can do for us. There can be freedom with food, I promise. Want to know more about balanced eating? Check out this [book.] (http://madetocrave.org/)
+If you take only one thing from this post, let it be this: Food is not your enemy. Find what works for you, what makes you feel good and own it. Owning our health is something no one else can do for us. There can be freedom with food, I promise. Want to know more about balanced eating? Check out this [book.](http://madetocrave.org/)
 
 **Peace, love and macros.**
