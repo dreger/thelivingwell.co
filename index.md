@@ -3,7 +3,7 @@ layout: post
 asset: 'hustle'
 category: about
 ---
-# the living well
+# Welcome to the living well.
 
 Im glad you're here. Why am I here? Good question. 
 
