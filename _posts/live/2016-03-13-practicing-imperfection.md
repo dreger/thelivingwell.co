@@ -1,7 +1,8 @@
 ---
 title: "practicing imperfection"
+asset: "succulent"
 category: live
-published: false
+published: true
 ---
 
 I recently started reading [The gifts of Imperfection.](http://www.amazon.com/The-Gifts-Imperfection-Supposed-Embrace/dp/159285849X)
@@ -17,12 +18,12 @@ I’ve seen the ways it has robbed me of joy. I’ve counted the nights I have l
 And now I’m mad.
 
 I don’t get mad about a lot of things in life. Hardly ever, really. But mad is the emotion that rears its head when I am plain sick and tired of sitting in my own junk. Get on with it, already!
+
 *Madness is my catalyst.* And in my madness, I am determined to change.
 
 Like any other habit in life, imperfection must be practiced.
 
-Every week I am going to post a new way to practice imperfection. I’ll post the prompt on Sunday and we’ll spend the week practicing it.
-Post about it, write about it, tell me how you’re [#practicingimperfection.](https://www.instagram.com/explore/tags/practicingimperfection/) by using the hashtag.
+Every week I am going to post a new way to practice imperfection. I’ll post the prompt on Sunday and we’ll spend the week practicing it.Post about it, write about it, tell me how you’re [#practicingimperfection.](https://www.instagram.com/explore/tags/practicingimperfection/) by using the hashtag.
 
 Galatians 3:3  is my slap in the face reminder that I am not called to be perfect, Jesus has that one on lock down. 
 "How foolish can you be? After starting your Christian lives in the Spirit, why are you now trying to become perfect by your own human effort?" Boom. By the power of the spirit, may you practice imperfection and totally own it.
