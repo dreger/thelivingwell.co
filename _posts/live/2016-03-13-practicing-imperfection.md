@@ -1,7 +1,7 @@
 ---
 title: "practicing imperfection"
 category: live
-published: true
+published: false
 ---
 
 I recently started reading [The gifts of Imperfection.](http://www.amazon.com/The-Gifts-Imperfection-Supposed-Embrace/dp/159285849X)
