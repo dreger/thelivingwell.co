@@ -7,7 +7,7 @@ published: false
 I recently started reading [The gifts of Imperfection.](http://www.amazon.com/The-Gifts-Imperfection-Supposed-Embrace/dp/159285849X)
 Rocking my perfectionist world over here.
 
-I am painfully aware of the ways perfectionism hinders me from experiencing the freedom God has for my life. I’ve been hell-bent on trying to rewire the default setting in me that has to be perfect all. the.time. Part of me assumed once I identified it and asked God to kill it, that it would up and walk out of my life and I’d wave “see ya never!” 
+I am painfully aware of the ways perfectionism hinders me from experiencing the freedom God has for my life. I’ve been hell-bent on trying to rewire the setting in me that has to be perfect all.the.time. Part of me assumed once I identified the root of my perfectionism and asked God to kill it, that it would up and walk out of my life and I’d wave “see ya never!” 
 
 Not so. 
 I’ve named it, prayed over it, yelled at it, meditated the heck over and yet, I’m still very much a perfectionist.  
@@ -25,7 +25,7 @@ Every week I am going to post a new way to practice imperfection. I’ll post th
 Post about it, write about it, tell me how you’re [#practicingimperfection.](https://www.instagram.com/explore/tags/practicingimperfection/)
 
 Galatians 3:3  is my slap in the face reminder that I am not called to be perfect, Jesus has that one on lock down. 
-How foolish can you be? After starting your Christian lives in the Spirit, why are you now trying to become perfect by your own human effort?
+"How foolish can you be? After starting your Christian lives in the Spirit, why are you now trying to become perfect by your own human effort?"
 
 Boom. By the power of the spirit, may you practice imperfection and totally own it.
 
