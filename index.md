@@ -31,5 +31,4 @@ This corner of the internet, much like my life, is a work in progress. Sit with 
 
 **“Everyone who drinks this water will be thirsty again, but whoever drinks the water I give them will never thirst. Indeed, the water I give them will become in them a spring of water, welling up to eternal life” John 4:13-14**
 
-Welcome to the living well.
 
