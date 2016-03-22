@@ -22,11 +22,11 @@ I don’t get mad about a lot of things in life. Hardly ever, really. But mad is
 Like any other habit in life, imperfection must be practiced.
 
 Every week I am going to post a new way to practice imperfection. I’ll post the prompt on Sunday and we’ll spend the week practicing it.
-Post about it, write about it, tell me how you’re [#practicingimperfection.](https://www.instagram.com/explore/tags/practicingimperfection/)
+Post about it, write about it, tell me how you’re [#practicingimperfection.](https://www.instagram.com/explore/tags/practicingimperfection/) by using the hashtag.
 
 Galatians 3:3  is my slap in the face reminder that I am not called to be perfect, Jesus has that one on lock down. 
-"How foolish can you be? After starting your Christian lives in the Spirit, why are you now trying to become perfect by your own human effort?"
+"How foolish can you be? After starting your Christian lives in the Spirit, why are you now trying to become perfect by your own human effort?" Boom. By the power of the spirit, may you practice imperfection and totally own it.
 
-Boom. By the power of the spirit, may you practice imperfection and totally own it.
+Looking forward to seeing how you practice imperfection. Let's laugh, cry, get mad, and understand the difference between doing our best, and striving for the unatainable.
 
 [#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
