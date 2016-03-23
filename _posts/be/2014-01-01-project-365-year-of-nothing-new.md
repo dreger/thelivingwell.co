@@ -2,6 +2,7 @@
 title: 'Project 365: Year of Nothing New'
 asset: 'a-year-of-nothing-new'
 category: be
+published: false
 ---
 
 I've been thinking about this and trying to write about it for the last month. Without further self scrutiny on my behalf, here it is.
