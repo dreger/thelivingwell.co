@@ -14,7 +14,7 @@ No sooner the words left my lips, I heard the emptiness ring back. The routine s
 
 All we can do is pray.
 
-All we can do?
+*All* we can do?
 
 Prayer is the MOST we can do. It is the best thing we can do. And it is a privilege that we get to.
 
@@ -22,9 +22,8 @@ The words in 1 Thessalonians 5:17 charge us to "Pray without ceasing."
 
 At all times and with out end.
 
-Prayer is not an isolated event. It's not a last resort, and it certainly isn't an empty act.
+Prayer is not an isolated event, it's a posture of the heart. It's not a last resort, it is our strongest weapon. 
 
-It's a posture of the heart. Every breath in our lungs, exhaled to the one who hears it all. And not only does he hear it all, he bears it all. He cares about it all. He wants it all.
-
+Every breath in our lungs, is exhaled to the one who hears it all. And not only does he hear it all, he bears it all, he holds it all. 
 Pray without ceasing. There's power in the persistence.
 
