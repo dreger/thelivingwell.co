@@ -2,6 +2,7 @@
 title: 'Project 365: The Simple things set you&nbsp;free'
 asset: 'rocks'
 category: be
+published: false
 ---
 
 On my 25th birthday I gave myself a trio of life statements:
