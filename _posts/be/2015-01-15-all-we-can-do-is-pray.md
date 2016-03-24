@@ -1,7 +1,7 @@
 ---
 title: All we can do is pray
 category: be
-asset: 'grass'
+asset: 'img-1191'
 ---
 
 I was on the phone with a friend, detailing a sad situation involving someone close to me. She was mourning a recent and tragic loss of someone in her life. On and on we talked. Sick stomachs and broken hearts over the pain we endure in this life.
