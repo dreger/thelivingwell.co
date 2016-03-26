@@ -22,7 +22,7 @@ I don’t get mad about a lot of things in life. Hardly ever, really. But mad is
 
 Like any other habit in life, imperfection must be practiced. Practice with me?
 
-Every week I am going to post a new way to practice imperfection. I’ll post the prompt on Sunday and we’ll spend the week practicing it. Post about it, write about it, tell me how you’re #practicingimperfection.
+Every week I am going to post a new way to practice imperfection. I’ll post the prompt on Monday and we’ll spend the week practicing it. Post about it, write about it, tell me how you’re #practicingimperfection.
 [#practicingimperfection.](https://www.instagram.com/explore/tags/practicingimperfection/) by using the hashtag.
 
 Galatians 3:3  is my slap in the face reminder that I am not called to be perfect, Jesus has that one on lock down. 
