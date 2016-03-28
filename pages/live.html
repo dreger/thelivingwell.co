@@ -3,8 +3,25 @@ layout: default
 permalink: /live/
 category: live
 ---
+
+{% for post in site.categories.live limit:1 %}
+<div class="post">
+  {% if post.asset %}
+    <img src="/assets/images/{{ post.asset }}.jpg">
+  {% endif %}
+  <header class="post-header">
+    <h1 class="post-title"><a href="{{ post.url }}">{{ post.title }}</a></h1>
+    <h2 class="post-date">{{ post.date | date: "%B %-d, %Y" }}</h2>
+  </header>
+  <article class="post-content">
+    {{ post.content }}
+  </article>
+</div>
+{% endfor %}
+
 <hr class="headspace">
-{% for post in site.categories.live %}
+
+{% for post in site.categories.live offset:1 %}
 <a class="post-snippet" href="{{ post.url }}">
   {% if post.asset %}
     <span class="post-snippet-asset"><img src="/assets/images/{{ post.asset }}.jpg"></span>
