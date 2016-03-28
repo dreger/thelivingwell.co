@@ -21,7 +21,7 @@ Sometimes my inclination to deflect happens so instantly, I don’t even have ti
 
 On and on. We deflect, instead of just saying the unashamed truth. 
 
-**But when we don’t make room for mistakes, we squeeze out any room for grace.**
+**But when we don’t allow for mistakes, we squeeze out any room for grace.**
 _We settle for cheap praise instead of deep grace._
 
 Can we practice admitting mistakes? God knows we’ll have plenty of opportunity to try.
