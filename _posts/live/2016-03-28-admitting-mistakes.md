@@ -10,7 +10,7 @@ And for something that occurs so regularly, I find it really hard to admit when 
 
 Sometimes my inclination to deflect happens so instantly, I don’t even have time to stop the train before it leaves my mouth… It usually looks like something like this:
 
-**Deflection:** Oh yeah, I was totally going to do that right after this other thing
+**Deflection:** Oh yeah, I was totally going to do that right after this other thing.
 **Truth:** And by ‘totally going to do that’, I mean I totally forgot. So I’ll squeeze it in, somehow.
 
 **Deflection:** Yep, I did that already.
