@@ -10,16 +10,19 @@ And for something that occurs so regularly, I find it really hard to admit when 
 
 Sometimes my inclination to deflect happens so instantly, I don’t even have time to stop the train before it leaves my mouth… It usually looks like something like this:
 
-*Deflection:* Oh yeah, I was totally going to do that right after this other thing…
+*Deflection:* Oh yeah, I was totally going to do that right after this other thing
+
 *Truth:* And by ‘totally going to do that’, I mean I totally forgot. So I’ll squeeze it in, somehow.
 
 *Deflection:* Yep, I did that already.
+
 *Truth:* I actually didn’t, but I’m going to NOW that you reminded me and pretend I already had done it.
 
 *Deflection:* Well, it’s actually not THAT bad.
+
 *Truth:* I want you to think my mess up isn’t as bad as someone else’s.
 
-On and on...We deflect, instead of just saying the unashamed truth. 
+On and on. We deflect, instead of just saying the unashamed truth. 
 
 *But when we don’t make room for mistakes, we squeeze out any room for grace.*
 _We settle for cheap praise instead of deep grace._
