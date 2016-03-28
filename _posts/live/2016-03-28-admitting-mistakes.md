@@ -29,6 +29,6 @@ Can we practice admitting mistakes? God knows we’ll have plenty of opportunity
 This week’s [#practicingimperfection](https://www.instagram.com/explore/tags/practicingimperfection/) challenge is: admit a mistake, right in the moment - big or little, serious or not.
 
 And instead of calling it an epic fail, can we call it epic imperfection? Seriously. Leaving the keys in the car whilst running, when you’re already late and you have no shoes on is not a failure moment. It’s a real life moment. Its epic imperfection.
-Little whoopsie, or huge let-down, lets own messing up this week. 'Cause there's grace to go around.
+Little whoopsie, or huge let-down - lets own messing up this week. 'Cause there's grace to go around.
 
 [#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
