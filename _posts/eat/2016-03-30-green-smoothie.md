@@ -7,7 +7,7 @@ published: false
 
 I don’t mind eating the same foods every day, really. I know they fit my macros and I know how they make me feel. No surprises for my stomach.
 
-This is my go-to [green smoothie[(https://www.instagram.com/p/7vClNQIIoB/?taken-by=sarahkay_3) for every day after I workout. I think I like it most, because it takes one minute to make and you really can’t mess it up. 4 ingredients, easy peasy. 
+This is my go-to [green smoothie](https://www.instagram.com/p/7vClNQIIoB/?taken-by=sarahkay_3) for every day after I workout. I think I like it most, because it takes one minute to make and you really can’t mess it up. 4 ingredients, easy peasy. 
 
 **Ingredients**
 1 banana (fresh or frozen. Frozen makes it more like a milkshake, if that’s your thing)
