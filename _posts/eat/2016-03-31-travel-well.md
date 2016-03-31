@@ -10,7 +10,7 @@ Do you travel often for work? Live in your car more than your home? Does your mi
 
 I don’t travel like I used to anymore. I work from home (glory be) and commute 1.5 hours from my country home to the city office twice a month. And even during those 4 days while I’m away from home, I feel like my momentum in choosing well is easily lost. I don’t have the ability to eat my normal foods, or workout at my normal times. It’s easier to not even try. I used to think – “I’m not in my normal routine, so what’s the use?”
 
-I started realizing, this “my-way-or-nothing” attitude pointed to a level of inflexibility in my spirit. Routines can be life-giving, absolutely. But they can also be life-inhibiting when we believe they are the only way. _When we allow for flexibility in our day, we make room for unexpected gifts._
+I started realizing, this “my-way-or-nothing” attitude pointed to a level of inflexibility in my spirit. Routines can be life-giving, absolutely. But they can also be life-inhibiting when we believe they are the only way to succeed. _When we allow for flexibility in our day, we make room for unexpected gifts._
 
 For me, traveling well is a simple balance of planning and flexibility. 
 
@@ -23,9 +23,9 @@ These things travel well in a cooler, whether it’s to the soccer fields or the
 **Planning: Day of**
 
 Trying to get out the door on travel days, my inner dialogue reads – “my keys are in the freezer? Weird. Did I pack my blowdryer? Maybe I need more socks. Should I change my shoes now or when I get there? I hope I remembered my phone charger.”
-Breakfast isn’t on my psycho mental list. But I make sure not to skip it.
+Breakfast isn’t on my psychotic mental list. But I make sure not to skip it.
 
-I make my usual [green smoothie](http://thelivingwell.co/eat/green-smoothie) and put it in my blender bottle to drink on the road. Boom – done. 1 minute breakfast, max.  
+I make my usual [green smoothie](http://thelivingwell.co/eat/green-smoothie) and put it in my blender bottle to drink on the road. Boom – done. 1 minute breakfast. 
 
 **Flexibility: While I’m there**
 
@@ -45,10 +45,10 @@ None of this sounds like rocket science, but if I didn’t do any of it I would 
 
 Honestly, the mental act of preparing makes me feel like I’m already winning. Even if everything else goes awry, I tried. And that, to me, counts as a win.
 
-Try doing one thing different in your travel endeavors this week. Plan ONE thing ahead, and don’t try to uproot the whole system at once. 
+Try doing one thing different in your travel endeavors this week. Plan ONE thing ahead, and allow room for more flexibility. And even if it all goes to crap and dinner looks like french fries and milano cookies, thats fine and well, too.
 
 There’s grace in living and traveling well.
 
-_Peace, love, and veggie burgers_
+_Peace, love, and veggie burgers._
 
 [#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
