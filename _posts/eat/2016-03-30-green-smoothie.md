@@ -2,7 +2,7 @@
 title: "go-to green smoothie"
 asset: "greensmoothie" 
 category: eat
-published: false
+published: true
 ---
 
 I don’t mind eating the same foods every day, really. I know they fit my macros and I know how they make me feel. No surprises for my stomach.
