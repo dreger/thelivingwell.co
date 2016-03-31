@@ -11,17 +11,16 @@ This is my go-to [green smoothie](https://www.instagram.com/p/7vClNQIIoB/?taken-
 
 **Ingredients**
 
-_-1 banana (fresh or frozen. Frozen makes it more like a milkshake, if that’s your thing)
+-1 banana (fresh or frozen. Frozen makes it more like a milkshake, if that’s your thing)
 
 -1 scoop chocolate whey (currently using [this]( http://www.amazon.com/Optimum-Nutrition-Standard-Double-Chocolate/dp/B000QSNYGI) but I’m not religious about it being the best)
 
 -8oz unsweetened almond milk (varieties I like include Silk and Califia Farms – see note below)
 
--Two big handfuls of spinach (sorry I can’t be more precise here – pretty much fills my Vitamix up)_
+-Two big handfuls of spinach (sorry I can’t be more precise here – pretty much fills my Vitamix up)
 
-And then you blend for 30 seconds or so.
 
-And then it’s done.
+And then you blend for 30 seconds or so. And then it’s done.
 
 And then you drink it.
 
