@@ -47,6 +47,8 @@ Honestly, the mental act of preparing makes me feel like I’m already winning. 
 
 Try doing one thing different in your travel endeavors this week. Plan ONE thing ahead, and don’t try to uproot the whole system at once. 
 
-There’s grace in living and traveling well!
+There’s grace in living and traveling well.
+
+_Peace, love, and veggie burgers_
 
 [#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
