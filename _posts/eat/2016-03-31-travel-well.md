@@ -12,7 +12,7 @@ I don’t travel like I used to anymore. I work from home (glory be) and commute
 
 I started realizing, this “my-way-or-nothing” attitude pointed to a level of inflexibility in my spirit. Routines can be life-giving, absolutely. But they can also be life-inhibiting when we believe they are the only way to succeed. _When we allow for flexibility in our day, we make room for unexpected gifts._
 
-For me, traveling well is a simple balance of planning and flexibility. 
+So I changed what my travel game looks like. Instead of throwing it all out the window, I adopted a travel mindset of "planned flexibility." I plan for what I can, and embrace opportunities to let my wellness be flexible.
 
 **Planning: Before**
 
@@ -25,7 +25,7 @@ These things travel well in a cooler, whether it’s to the soccer fields or the
 Trying to get out the door on travel days, my inner dialogue reads – “my keys are in the freezer? Weird. Did I pack my blowdryer? Maybe I need more socks. Should I change my shoes now or when I get there? I hope I remembered my phone charger.”
 Breakfast isn’t on my psychotic mental list. But I make sure not to skip it.
 
-I make my usual [green smoothie](http://thelivingwell.co/eat/green-smoothie) and put it in my blender bottle to drink on the road. Boom – done. 1 minute breakfast. 
+I make my usual [green smoothie](http://thelivingwell.co/eat/green-smoothie) and put it in my blender bottle to drink on the road. Boom. 1 minute breakfast - done.
 
 **Flexibility: While I’m there**
 
@@ -33,11 +33,11 @@ I always pack my gym gear (and yoga mat.) Because if I don’t have it, then I�
 
 Without this super rad set up, there are still options for staying fit on the road. Many gyms have a low drop-in rate for classes. It costs like $5 and you feel like a travel-genius afterward. Or, find out where co-workers go. Usually they can bring a guest to the gym for free or a one-time rate. 
 
-If for whatever reason I can’t find time in my day to make it to the gym, I make sure to walk at every opportunity. I park far away in the parking garage, take the stairs, and go the long way to the restroom. Little choices can have big impact.
+If for whatever reason I can’t find time in my day to make it to the gym, I make sure to walk at every opportunity. I park far away in the parking garage, take the stairs, and go the long way to the restroom. Little choices can have big impact. 
 
-As far as food goes, I’ve got my system down pretty well. We have a super-cute cold pressed juice store one block away and I usually grab a kale-apple-lemon for when I need a mid-afternoon pick me up. The restaurant on the first floor of our building has a beet veggie burger I could eat every day. Admittedly, sometimes I do. When I find something I like, I’m not ashamed to eat it like it’s going out of style.
+As far as food goes, I know what I like. We have a super-cute cold pressed juice store one block away and I usually grab a kale-apple-lemon for when I need a mid-afternoon pick me up. The restaurant on the first floor of our building has a beet veggie burger I could eat every day. Admittedly, sometimes I do. When I find something I like, I’m not ashamed to eat it like it’s going out of style.
 
-But sometimes, the system fails. Co-workers might want to go out for lunch (socializing? Ugh.) or we have meetings over lunch that get catered in and my veggie burger chow fest gets the kibosh. Whatever. It’s fine. I’m flexible, yeah? My rules for unexpected meal changes are– stay away from anything I wouldn’t normally choose. Beer-cheese fries sound ah-mazing, but my GI-tract will disagree later.
+But sometimes, things change. Co-workers might want to go out for lunch (socializing? Ugh.) or we have meetings over lunch that get catered in and my veggie burger chow fest gets the kibosh. Whatever. It’s fine. I’m flexible, yeah? My rules for unexpected meal changes are– stay away from anything I wouldn’t normally choose. Beer-cheese fries sound ah-mazing, but my GI-tract will disagree later.
 
 Did I mention to hydrate? Yeah. I water myself, all.day.long. Gives me energy, keeps me feeling fuller longer. Wherever I go, my water bottle goes too.
 
