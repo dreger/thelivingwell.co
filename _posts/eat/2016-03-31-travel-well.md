@@ -27,7 +27,7 @@ Breakfast isn’t on my psycho mental list. But I make sure not to skip it.
 
 I make my usual green smoothie and put it in my blender bottle to drink on the road. Boom – done. 1 minute breakfast, max.  
 
-*Flexibility: While I’m there*
+**Flexibility: While I’m there**
 
 I always pack my gym gear (and yoga mat.) Because if I don’t have it, then I’m definitely not working out. This often proves to be the hardest part about traveling – finding the time and motivation. I am fortunate enough to have a new office building that has a gym and FREE yoga classes in the evening. (Yeah – that’s real. So I legitimately have zero excuses.)
 
