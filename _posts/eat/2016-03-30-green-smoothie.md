@@ -30,4 +30,4 @@ Macros are: 28gP / 33gC / 4gF
 
 _Peace, love, and protein._
 
-**(Almond milk note – Check the ingredient list! Some brands still contain [Carrageenan]( http://wellnessmama.com/2925/what-is-carrageenan/),a thickening agent, and it declares WAR on my intestines.**
+(Almond milk note – Check the ingredient list! Some brands still contain [Carrageenan]( http://wellnessmama.com/2925/what-is-carrageenan/), a thickening agent, and it declares WAR on my intestines.
