@@ -2,7 +2,7 @@
 title: "travel well"
 asset: "travel" 
 category: eat
-published: false
+published: true
 ---
 This is for all the self-proclaimed road warriors.
 
@@ -25,7 +25,7 @@ These things travel well in a cooler, whether it’s to the soccer fields or the
 Trying to get out the door on travel days, my inner dialogue reads – “my keys are in the freezer? Weird. Did I pack my blowdryer? Maybe I need more socks. Should I change my shoes now or when I get there? I hope I remembered my phone charger.”
 Breakfast isn’t on my psycho mental list. But I make sure not to skip it.
 
-I make my usual green smoothie and put it in my blender bottle to drink on the road. Boom – done. 1 minute breakfast, max.  
+I make my usual [green smoothie](http://thelivingwell.co/eat/green-smoothie) and put it in my blender bottle to drink on the road. Boom – done. 1 minute breakfast, max.  
 
 **Flexibility: While I’m there**
 
