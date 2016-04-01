@@ -1,6 +1,6 @@
 ---
 title: "why we take pictures and dont let you pay us"
-asset: "Photobanner" 
+asset: "photobanner" 
 category: live
 published: true
 ---
