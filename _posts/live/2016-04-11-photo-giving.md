@@ -1,8 +1,8 @@
 ---
 title: "why we take pictures and dont let you pay us"
-asset: "filename of image (assumes a .jpg extension)" 
+asset: "Photobanner" 
 category: live
-published: false
+published: true
 ---
 
 We aren’t professionals. He’s a chemist, I’m a creative and [photography]( https://www.flickr.com/photos/135284560@N02/albums) is where our worlds collide. 
