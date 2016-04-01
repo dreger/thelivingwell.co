@@ -11,7 +11,7 @@ Somewhere along the way, our shared hobby turned into a way to bless others. Our
 
 What we do is smaller scale, with specific focus: giving photos to those who couldn’t otherwise afford it. Single moms, young engaged couples – we know money is tight, but memories are still precious. 
 
-Along the way of photographing friends and family, this giving of our time and resource became a way to give ourselves freely to others.  So that’s what we do, we give our time. We follow your family around and capture your authentic lives, for free. 
+While photographing friends and family, giving of our time and resource became a way to give ourselves freely to others.  So that’s what we do, we give our time. We follow your family around and capture your authentic lives, for free. 
 
 We don’t have a studio. We don’t show up with props or a crazy entourage. Just us, sometimes only me, and the camera.
 You be you, and I just shoot. And on the other side of the camera, I pray for you. For your marriage, your sweet babe or whatever God prompts.  For an hour or so, I get to bear witness to unique lives. And while giving photos is a gift to you, the whole thing is a gift to me.
