@@ -30,9 +30,7 @@ Use it as lotion on your face, legs, anywhere.
 
 It makes THE best eye make up remover. It removes more makeup than I even realized I had on, and does not clog your pores. I keep a small jar of it in the bathroom, separate from the one I keep in the kitchen. I cannot overstate this enough. Coconut oil for eye make up remover will change your life. Coconut oil for president! 
 
-_A word about coconut oil_
-
-Not all coconut oils are created equal. Look for virgin only and avoid partially hydrogenated oil. I use Trader Joe’s cold pressed organic coconut oil.  I buy two every time I go, because for $5.99, it’s a steal.  (Aldi now carries  organic too for about a dollar cheaper.)
+_A word about coconut oil._Not all coconut oils are created equal. Look for virgin only and avoid partially hydrogenated oil. I use Trader Joe’s cold pressed organic coconut oil.  I buy two every time I go, because for $5.99, it’s a steal.  (Aldi now carries  organic too for about a dollar cheaper.)
 
 Like all things – do your research. 
 
