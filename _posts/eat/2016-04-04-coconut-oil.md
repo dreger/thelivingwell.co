@@ -1,8 +1,8 @@
 ---
 title: "coconut oil for president"
-asset: "filename of image (assumes a .jpg extension)" 
+asset: "coconut" 
 category: eat
-published: false
+published: true
 ---
 
 It’s all the hype right now. Trendy or not, I will use this stuff until the day I die and here’s why.
@@ -15,6 +15,7 @@ Just a few ways I use it regularly:
 Add it to coffee for a kick of coconut. Swap it with butter. Use it for pan-frying in the kitchen – it’s incredibly stable and has a high smoke point.
 
 **In the bathroom:**
+
 No shaving cream? Coconut oil those legs.
 
 Frizzy Hair day? Rub a tiny bit between your palms and smooth over frizz.
