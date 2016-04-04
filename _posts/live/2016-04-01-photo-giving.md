@@ -5,7 +5,7 @@ category: live
 published: true
 ---
 
-We aren’t professionals. He’s a chemist, I’m a creative and [photography]( https://www.flickr.com/photos/135284560@N02/albums) is where our worlds collide. 
+We aren’t professionals. He’s a chemist, I’m a marketer and [photography]( https://www.flickr.com/photos/135284560@N02/albums) is where our worlds collide. 
 
 Somewhere along the way, our shared hobby turned into a way to bless others. Our final product isn’t what you’d pay big bucks for - the professionals do unbelievable work and we honor their skills.
 
