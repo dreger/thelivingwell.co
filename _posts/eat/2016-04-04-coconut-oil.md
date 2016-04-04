@@ -12,7 +12,12 @@ I can use it for everything! Literally, everything. The best part is, a little g
 Just a few ways I use it regularly:
 
 **In the Kitchen**
-Add it to coffee for a kick of coconut. Swap it with butter. Use it for pan-frying in the kitchen – it’s incredibly stable and has a high smoke point.
+
+Add it to coffee for a kick of coconut.
+
+Swap it with butter. 
+
+Use it for pan-frying in the kitchen – it’s incredibly stable and has a high smoke point.
 
 **In the bathroom:**
 
@@ -24,7 +29,8 @@ Dry hair? Use as a deep moisturizing mask once a week. A little goes a long way.
 Use it as lotion on your face, legs, anywhere.
 
 It makes THE best eye make up remover. It removes more makeup than I even realized I had on, and does not clog your pores. I keep a small jar of it in the bathroom, separate from the one I keep in the kitchen. I cannot overstate this enough. Coconut oil for eye make up remover will change your life. Coconut oil for president! 
-A word about coconut oil
+
+_A word about coconut oil_
 
 Not all coconut oils are created equal. Look for virgin only and avoid partially hydrogenated oil. I use Trader Joe’s cold pressed organic coconut oil.  I buy two every time I go, because for $5.99, it’s a steal.  (Aldi now carries  organic too for about a dollar cheaper.)
 
