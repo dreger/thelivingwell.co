@@ -7,15 +7,15 @@ published: true
 
 I’ve realized something strange about myself.
 
-In my pursuit to live authentically, I often find myself trying to be like everyone else. 
+In the pursuit of doing things authentic to my soul, I often find myself trying to be like everyone else. 
 
-When I started pursuing yoga, I really loved it. The breath, the movement – the way progress WAS the journey and perfecting didn’t even exist. Yoga looks different on everyone, and I love that. But then I started realizing, some of us still try to look the same. 
+When I started pursuing yoga, I really loved it. The breath, the movement – the way progress WAS the journey and perfecting didn’t even exist. Yoga looks different on everyone, and I love that. But then I started realizing, most of us were trying to look the same.
 
-We insist on carry certain yoga mats, recommended by the yogi’s, to give us all equal support and experience. We wear the same Lululemon attire, because you know, that’s what serious yogi’s do. We want to achieve every asana, perfectly and quickly, like everyone else.
+We insist on using certain yoga mats, recommended by the yogis, to give us all equal support and experience. We wear the same Lululemon attire, because you know, that’s what serious yogi’s do. We want to achieve every asana, perfectly and quickly, like everyone else.
 
-And this little thing called comparison crept in. In my pursuit of something totally for me, I wanted to look the same as everyone else.
+And then this little thing called comparison crept in. In my pursuit of something totally for me, I wanted to look the same as everyone else.
 
-The same was true for my morning routine. Some of the most influential women I know, site their success in balancing life, to getting up early every morning. They make coffee, do their devotions, spend time in prayer, and work out before anyone else gets up. In my head, I picture Mary Poppins, just bee-bopping along, all cheery and crap. 
+The same was true for my quiet time with God. Some of the most influential women I know, site their success in balancing life, to getting up early every morning. They make coffee, do their devotions, spend time in prayer, and work out before anyone else gets up. In my head, I picture Mary Poppins, just bee-bopping along, all cheery and crap. 
 
 For years, I have wanted to be this person. Wake up, hear the birds singing with the sun streaming through the windows and perch quietly in my big chair. Except there was always one minor problem: I really love my sleep. And waking up early has this weird way of ending my sleep. So it never worked for me. The mornings I tried, I would usually fall back asleep in my chair. So I stopped trying the morning thing, which turned into not trying at all. 
 
