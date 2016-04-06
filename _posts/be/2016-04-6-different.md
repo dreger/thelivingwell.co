@@ -39,7 +39,7 @@ Same is the decision to choose better, different is how it looks.
 
 There’s grace in living well.
 
-#graceinlivingwell.
+[#graceinlivingwell.](https://www.instagram.com/explore/tags/graceinlivingwell/)
 
 
 
