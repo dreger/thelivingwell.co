@@ -21,7 +21,7 @@ For years, I have wanted to be this person. Wake up, hear the birds singing with
 
 Ridiculous, right? But actually, pretty common. When we decide to incorporate more life-giving rhythms in our life, it’s usually because someone has inspired us to do so. We try to mimic what wellness looks like for them, forgetting that a life-giving routine has to be our own.
 
-_If we picture what wellness **has** to look like, we’ll never embrace what it **can** look like._ 
+_If we're set on what wellness **has** to look like, we’ll never embrace what it **can** look like._ 
 
 It can look like a 10 minute meditation in the morning, in between brushing teeth and preparing food (and by preparing, I mean throwing things in a half-zipped bag.)
 
