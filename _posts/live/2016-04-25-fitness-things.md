@@ -9,7 +9,7 @@ Points for creative post title, check.
 
 I don’t swear by a lot of things in my fitness routine, but I do have a few things I would recommend when asked.
 
-**Fitbit** // People often ask about my [Fitbit ChargeHR.]) http://www.fitbit.com/chargehr) I have the purple one, naturally. June will mark one year of owning it, and I haven’t tired of it yet. They come out with new updates via the software, much like your Iphone, so your device doesn’t become obsolete every time they come out with a new feature.
+**Fitbit** // People often ask about my [Fitbit ChargeHR.](http://www.fitbit.com/chargehr) I have the purple one, naturally. June will mark one year of owning it, and I haven’t tired of it yet. They come out with new updates via the software, much like your Iphone, so your device doesn’t become obsolete every time they come out with a new feature.
 
 It’s comfortable, easy to use and keeps me motivated to move my rear. My brother in law and husband wrote a comical [review](http://audaciousfox.com/2016/01/fitbit-hr-review) and I would definitely suggest reading the whole thing. If, for no other reason, because their quirky banter makes me giggle.
 
