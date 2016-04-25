@@ -27,8 +27,10 @@ My mom just got herself one at [kohls,]( http://www.kohls.com/product/prd-177882
 
 **Manduka Yoga Mat** // This is my most recent investment, and I am definitely drinking the Manduka koolaid. My previous, TEAL colored yoga mat was from target. I probably spent a total of $20 on it and used it for about 4 years. It didn’t take long to realize it provided zero support, but I still couldn’t justify spending cash money on foam.
 
-And then I started doing research. Manduka mats are lifetime guaranteed, and recommended by the pros. So what you’re paying for, is an investment in your practice. I bought the [navy blue prolite]( https://www.manduka.com/yoga-mats/pro/prolite-mat.html) 
+And then I started doing research. Manduka mats are lifetime guaranteed, and recommended by the pros. So what you’re paying for, is an investment in your practice. I bought the [navy blue prolite]( https://www.manduka.com/yoga-mats/pro/prolite-mat.html) and have loved it ever since. (Thank you, I know. It was brave of me to not get purple.)
 
-Thank you, I know. It was brave of me to not get purple.
+Peace, love, and purple things.
+
+[#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
 
 
