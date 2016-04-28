@@ -10,13 +10,13 @@ I have a hard time hitting my daily carb quota in a clean way. Veggies aren’t 
 At the end of every week, I usually have a random assortment of veggies, herbs, and almost-gone parmesan rinds in the fridge. My new thing is to make risotto with whatever I’ve got left. And because there’s something 5-star-feeling about creamy risotto, its luxury in a pan.
 
 It’s super easy, here’s how it goes:
-<br/>Sautee your veggies in olive oil (or butter because, butter.)<br/>
-<br/>Toast your grains for a bit in the same pan.<br/>
-<br/>Pour in organic chicken or vegetable stock.<br/>
-<br/>Add herbs/spices.<br/>
-<br/>Put pan right into oven. (make sure its cast iron or stainless steel)<br/>
-<br/>Bake at 400 for 40ish minutes. (depending on the grain)<br/>
-<br/>Done.<br/>
+<br/>Sautee your veggies in olive oil (or butter because, butter.)
+<br/>Toast your grains for a bit in the same pan.
+<br/>Pour in organic chicken or vegetable stock.
+<br/>Add herbs/spices.
+<br/>Put pan right into oven. (make sure its cast iron or stainless steel)
+<br/>Bake at 400 for 40ish minutes. (depending on the grain)
+<br/>Done.
 
 Legit, it’s that easy. The routine is the same, but the cast of characters looks different every time. Which makes it seem like you’re eating something totally new every week. When it comes to recipes, my battle cry is – flexibility. 
 
