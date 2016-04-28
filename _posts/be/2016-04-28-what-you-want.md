@@ -30,9 +30,7 @@ Where do I want to go? I want to go where He leads.
 
 And God hasn’t revealed to us where that is yet.
 
-Instead of me telling God what I want this to look like, I’m going to keep dreaming and let God show me what it looks like lived out. I’ll keep seeking, asking, and knocking and have open arms to receive whatever crazy ride he has next.
-
-Because I know even my best dreamed-up-dreams, pale in comparison to what he wants to write on the pages of my life.
+Instead of me telling God what I want this to look like, I’m going to keep dreaming with an open heart. I’ll keep seeking, asking, and knocking and have open arms to receive whatever he has. Because I know even my best dreamed-up-dreams, pale in comparison to what he wants to write on the pages of my life. It's always more.
 
 When C and I got married, we wrote our vows to include Ruth1:16 “Where you go I will go. Where you stay I will stay. Your people will be my people, and your God will be my God.”
 
@@ -51,9 +49,9 @@ God keeps drawing me back to the book of Numbers, 9:15.
 
 Wherever the spirit of the Lord went, the Israelites went too. Regardless of how quick their stay was, they always went. And they went knowing that the Lord went before them. They moved, when he moved.
 
-**He goes before us. He hovers where we are, and wherever his spirit is, there is freedom to fully live.**
+**He goes before us, always. He hovers where we are, and wherever his spirit is, there is freedom to fully live.**
 
-Right now, we’re OK not knowing what our next move actually looks like. God knows.
+Right now, we’re OK not knowing what our next move looks like. God knows.
 
 We’re just waiting on the fiery cloud to move.
 
