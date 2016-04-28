@@ -24,34 +24,25 @@ Here are some of my combinations. Pick one grain option, one veggie combo, one f
 
 **Grain options **
 
-**Arborio Rice // **(the traditional grain for risotto.) I use a 1 to 4-cup grain to liquid ratio to get a super creamy texture
-
-**Quinoa -// ** 1:2 ratio
-
-**Farro // ** 1:2.5 ratio
+<br/>**Arborio Rice // **(the traditional grain for risotto.) I use a 1 to 4-cup grain to liquid ratio to get a super creamy texture
+<br/>**Quinoa -// ** 1:2 ratio
+<br/>**Farro // ** 1:2.5 ratio
 
 **Veggie Combos**
 
-**1 //** Onion & garlic (every.single.time), Red bell Pepper, Sweet Potato
-
-**2 //** Onion & Garlic, Zuchini, Brussel sprouts, cauliflower
-
-**3 //** Black beans, red bell pepper, chopped spinach
+<br/>**1 //** Onion & garlic (every.single.time), Red bell Pepper, Sweet Potato
+<br/>**2 //** Onion & Garlic, Zuchini, Brussel sprouts, cauliflower
+<br/>**3 //** Black beans, red bell pepper, chopped spinach
 
 **Flavor profiles **
-
-**Mexican //** chopped cilantro, cumin, smoked paprika, black pepper, and some lime juice
-
-**Fresh //** Chopped dill, juice of half a lemon, black pepper
-
-**Caprese //** Chopped basil, balsamic vinegar, shaved parmesan
-
-**Buffalo // ** Hot sauce, juice of half a lemon
+<br/>**Mexican //** chopped cilantro, cumin, smoked paprika, black pepper, and some lime juice
+<br/>**Fresh //** Chopped dill, juice of half a lemon, black pepper
+<br/>**Caprese //** Chopped basil, balsamic vinegar, shaved parmesan
+<br/>**Buffalo // ** Hot sauce, juice of half a lemon
 
 My favorite combo is Mexican#1, which is pictured above. Followed by Buffalo#2. Who am I kidding, I like them all.
 
 Really, you could throw in anything you wanted. Whatever’s about to turn bad in the fridge, get it in the pan. And if you don’t have any of the herbs or spices to add in, it’s just as good with plain salt and pepper... And parmesan. Of course, parmesan.
 
 Peace, love, and grain gains.
-
-[#graceinlivingwell]( https://www.instagram.com/explore/tags/graceinlivingwell/)
+<br/>[#graceinlivingwell]( https://www.instagram.com/explore/tags/graceinlivingwell/)
