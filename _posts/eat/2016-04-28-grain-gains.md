@@ -22,7 +22,7 @@ Legit, it’s that easy. The routine is the same, but the cast of characters loo
 
 Here are some of my combinations. Pick one grain option, one veggie combo, one flavor profile and get to it. Then mix and match the following week.
 
-*Grain options*
+##Grain options##
 <br/> **Arborio Rice //** (the traditional grain for risotto.) I use a 1 to 4-cup grain to liquid ratio to get a super creamy texture
 <br/> **Quinoa //** 1:2 ratio
 <br/> **Farro //** 1:2.5 ratio
