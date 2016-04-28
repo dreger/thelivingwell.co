@@ -6,12 +6,17 @@ published: true
 ---
 No other question has tripped me up lately like this one has. When talking about future plans for C and I, this question keeps getting asked, in some way shape or form…
 
-<BR>“I hope that [moving across the country] is what you want.”
-<BR>“I hope [leaving Ohio] is what you want to do.”
-<BR>“I hope [whatever is next] will make you happy.”
-<BR>“Don’t you want to be where your family is?”
-<BR>Me: “Uhh. I’m not really sure yet..? I’m cool with whatever.”
-<BR>Real talk? This conversation annoys the heck out of me. 
+“I hope that [moving across the country] is what you want.”
+
+“I hope [leaving Ohio] is what you want to do.”
+
+“I hope [whatever is next] will make you happy.”
+
+“Don’t you want to be where your family is?”
+
+Me: “Uhh. I’m not really sure yet..? I’m cool with whatever.”
+
+Real talk? This conversation annoys the heck out of me. 
 
 Maybe because I have no clue how to respond. Maybe because, I’m not really sure what I want? No, that’s actually not it. 
 
