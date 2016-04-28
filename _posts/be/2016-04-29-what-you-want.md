@@ -30,15 +30,14 @@ Where do I want to go? I want to go where He leads.
 
 And God hasn’t revealed to us where that is yet.
 
-I think it’s OK to not have a tangible picture of “what I want” in my head. I did that once, when we arrived here. And it all came crashing down (more on that later.)
+Instead of me telling God what I want this to look like, I’m going to keep dreaming and let God show me what it looks like lived out. I’ll keep seeking, asking, and knocking and have open arms to receive whatever crazy ride he has next.
 
-So instead of me telling God what I want this to look like, I’m going to keep dreaming and keep letting God show me what my dreams looks like lived out.  I’ll keep seeking, asking and knocking and have open arms to receive whatever crazy ride he has next.
+Because I know even my best dreamed-up-dreams, pale in comparison to what he wants to write on the pages of my life.
 
-Because I know even my best dreamed-up-dream, pales in comparison to what he wants to write on my life.
-
-When C and I got married, we wrote our vows to include Ruth1:16 “Where you go I will go. Where you stay I will stay. Your people will be my people, and Your God will be my God.”
+When C and I got married, we wrote our vows to include Ruth1:16 “Where you go I will go. Where you stay I will stay. Your people will be my people, and your God will be my God.”
 
 We vowed this to each other, yes, but to God, first. We go where He goes, and we stay where he stays. And we only go, _because he goes._ Whether he has us there for 6 months or 6 years. We go.
+
 God keeps drawing me back to the book of Numbers, 9:15. 
 
 **The fiery cloud**
