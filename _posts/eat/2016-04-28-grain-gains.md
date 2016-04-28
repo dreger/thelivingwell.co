@@ -22,23 +22,21 @@ Legit, it’s that easy. The routine is the same, but the cast of characters loo
 
 Here are some of my combinations. Pick one grain option, one veggie combo, one flavor profile and get to it. Then mix and match the following week.
 
-**Grain options **<br/>
-
+**Grain options** <br/>
 <br/> **Arborio Rice // ** (the traditional grain for risotto.) I use a 1 to 4-cup grain to liquid ratio to get a super creamy texture
 <br/> **Quinoa // ** 1:2 ratio
 <br/> **Farro // ** 1:2.5 ratio
 
 **Veggie Combos** <br/>
-
 <br/> **1 //** Onion & garlic (every.single.time), Red bell Pepper, Sweet Potato
 <br/> **2 //** Onion & Garlic, Zuchini, Brussel sprouts, cauliflower
 <br/> **3 //** Black beans, red bell pepper, chopped spinach
 
-**Flavor profiles **<br/>
+**Flavor profiles** <br/>
 <br/> **Mexican //** chopped cilantro, cumin, smoked paprika, black pepper, and some lime juice
 <br/> **Fresh //** Chopped dill, juice of half a lemon, black pepper
 <br/> **Caprese //** Chopped basil, balsamic vinegar, shaved parmesan
-<br/> **Buffalo // ** Hot sauce, juice of half a lemon
+<br/> **Buffalo //** Hot sauce, juice of half a lemon
 
 My favorite combo is Mexican#1, which is pictured above. Followed by Buffalo#2. Who am I kidding, I like them all.
 
