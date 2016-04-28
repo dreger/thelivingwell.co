@@ -48,11 +48,11 @@ God keeps drawing me back to the book of Numbers, 9:15.
  
  *Sometimes the cloud would stay over the Tabernacle for only a few days, so the people would stay for only a few days, as the Lord commanded. Then at the Lord’s command they would break camp and move on. Sometimes the cloud stayed only overnight and lifted the next morning. But day or night, when the cloud lifted, the people broke camp and moved on.*
  
- *Whether the cloud stayed above the Tabernacle for two days, a month, or a year, the people of Israel stayed in camp and did not move on. But as soon as it lifted, they broke camp and moved on. So they camped or traveled at the Lord’s command, and they did whatever the Lord told them through Moses.”*
+ **Whether the cloud stayed above the Tabernacle for two days, a month, or a year, the people of Israel stayed in camp and did not move on. But as soon as it lifted, they broke camp and moved on. So they camped or traveled at the Lord’s command, and they did whatever the Lord told them through Moses.”**
 
-Wherever the spirit of the Lord went, the Israelites went too. Regardless of how quick their stay was, they always went. And they went knowing that the Lord went before them. They moved when he moved.
+Wherever the spirit of the Lord went, the Israelites went too. Regardless of how quick their stay was, they always went. And they went knowing that the Lord went before them. They moved, when he moved.
 
-**He goes before us, he hovers where we are, and he makes that place what we need.**
+**He goes before us. He hovers where we are, and wherever his spirit is, there is freedom to fully live.**
 
 Right now, we’re OK not knowing what our next move actually looks like. God knows.
 
