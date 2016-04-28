@@ -27,12 +27,12 @@ Here are some of my combinations. Pick one grain option, one veggie combo, one f
 <br/> **Quinoa** 1:2 ratio
 <br/> **Farro** 1:2.5 ratio
 
-*Veggie Combos //*
+**Veggie Combos //**
 <br/> **1:** Onion & garlic (every.single.time), Red bell Pepper, Sweet Potato
 <br/> **2:** Onion & Garlic, Zuchini, Brussel sprouts, cauliflower
 <br/> **3:** Black beans, red bell pepper, chopped spinach
 
-*Flavor profiles //*
+**Flavor profiles //**
 <br/> **Mexican:** chopped cilantro, cumin, smoked paprika, black pepper, and some lime juice
 <br/> **Fresh:** Chopped dill, juice of half a lemon, black pepper
 <br/> **Caprese:** Chopped basil, balsamic vinegar, shaved parmesan
