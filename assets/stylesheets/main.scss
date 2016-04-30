@@ -4,6 +4,7 @@
 @import "normalize";
 
 $color: #0BA59F; 
+$color-gray: #ddd; 
 $color-black: #444; 
 
 html {
@@ -122,6 +123,7 @@ li { margin-bottom: 1.6rem; }
   li {
     display: inline; 
   }
+  img { margin: 0; }
   a {
     text-decoration: none; 
   }
