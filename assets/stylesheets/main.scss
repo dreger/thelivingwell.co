@@ -59,9 +59,9 @@ blockquote {
 li { margin-bottom: 1.6rem; }
 
 .site-wrapper {
-  max-width: 960px; 
-  width: 760px; 
-  margin: 5rem auto; 
+  max-width: 760px; 
+  margin: 4rem auto; 
+  padding: 1rem; 
 }
 
 .site-header-logo {
@@ -208,4 +208,33 @@ li { margin-bottom: 1.6rem; }
   padding: 0; 
   margin-bottom: 150px; 
   border: 1px solid white; 
+}
+
+@media (max-width: 800px) {
+  .site-wrapper {
+    margin: 1rem auto; 
+  }
+  .site-content {
+    display: initial;
+  }
+  .sidebar {
+//     flex: none;
+    max-width: 100%; 
+    padding-right: 0; 
+  }
+  .site-header-logo {
+	display: block; 
+	margin: 0 auto 2rem; 
+  }
+  .sidebar-nav {
+    display: flex;
+  }
+  .sidebar-nav-item { 
+  	flex: 1  0 31%;
+  	margin-right: 1rem; 
+  }
+  .sidebar-nav-item-link {
+    padding: 0 1rem;
+	}
+	.hide-on-small { display: none; }
 }

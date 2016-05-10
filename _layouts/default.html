@@ -6,7 +6,7 @@
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
     <title>{% if page.title %}{{ site.title }}: {{ page.title }}{% else %}{{ site.title }}{% endif %}</title>
     <meta name="description" content="{% if page.excerpt %}{{ page.excerpt | strip_html | strip_newlines | truncate: 160 }}{% else %}{{ site.description }}{% endif %}">
-
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <link rel="stylesheet" href="{{ "/assets/stylesheets/main.css" | prepend: site.baseurl }}">
     <link href='http://fonts.googleapis.com/css?family=Lora' rel='stylesheet' type='text/css'>
     <link rel="canonical" href="{{ page.url | replace:'index.html','' | prepend: site.baseurl | prepend: site.url }}">
@@ -20,10 +20,10 @@
         <div class="sidebar">
           <a href="/"><img class="site-header-logo" src="/assets/images/logo.png"></a>
           <ul class="sidebar-nav">
-            <li class="sidebar-nav-item"><a id="live" href="/live/" class="sidebar-nav-item-link">live well</a></li>
-            <li class="sidebar-nav-item"><a id="eat" href="/eat/" class="sidebar-nav-item-link">eat well</a></li>
-            <li class="sidebar-nav-item"><a id="be" href="/be/" class="sidebar-nav-item-link">be well</a></li>
-            <li class="sidebar-nav-item"><a id="about" href="/" class="sidebar-nav-item-link">about</a></li>
+            <li class="sidebar-nav-item"><a id="live" href="/live/" class="sidebar-nav-item-link">live<span class="hide-on-small"> well</span></a></li>
+            <li class="sidebar-nav-item"><a id="eat" href="/eat/" class="sidebar-nav-item-link">eat<span class="hide-on-small"> well</span></a></li>
+            <li class="sidebar-nav-item"><a id="be" href="/be/" class="sidebar-nav-item-link">be<span class="hide-on-small"> well</span></a></li>
+            <li class="sidebar-nav-item  hide-on-small"><a id="about" href="/" class="sidebar-nav-item-link">about</a></li>
           </ul>
           
           <ul class="sidebar-social">
