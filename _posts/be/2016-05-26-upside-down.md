@@ -80,7 +80,7 @@ In a few months, we leave this place. We pack it all up, and move somewhere new.
 
 Leaving this place I stand taller in who God created me to be, unapologetically. **Unstoppable,** as I follow the call of God. **Undefeatable,** because no weapon formed against me shall prosper. **Unstuck,** moving gracefully from one season to the next. **Undaunted,** by the challenges of life. **Uncommon,** chasing a life countercultural to those around me. **Unleashed,** and not held captive by my past. *
 
-When everything goes upside down, I'm suggesting to _come undone._
+When everything goes upside down, let it_come undone._
 
 _Come undone, and watch yourself become untamable for the kingdom._
 
