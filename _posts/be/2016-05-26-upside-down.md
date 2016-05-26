@@ -74,25 +74,13 @@ Instead of hurrying up to fix myself, I let it burn. I let it fall. I let it all
 
 In a few months, we leave this place. We pack it all up, and move somewhere new. But who we are now, is not who we were when we arrived. No. There’s no going back now. _We burned the ships that brought us here._
 
-**Leaving this place I stand taller in who God created me to be, unapologetically. 
-
-Unstoppable, as I follow the call of God. 
-
-Undefeatable, because no weapon formed against me shall prosper. 
-
-Unstuck, moving gracefully from one season to the next. 
-
-Undaunted, by the challenges of life.
-
-Uncommon, chasing a life countercultural to those around me.
-
-Unleashed, and not held captive by my past.** *
+Leaving this place I stand taller in who God created me to be, unapologetically. **Unstoppable,** as I follow the call of God. **Undefeatable,** because no weapon formed against me shall prosper. **Unstuck,** moving gracefully from one season to the next. **Undaunted,** by the challenges of life. **Uncommon,** chasing a life countercultural to those around me. **Unleashed,** and not held captive by my past. *
 
 When everything goes upside down, _come undone._
 
 _Come undone, and watch yourself become untamable for the kingdom._
 
-_Exerpt from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)_
-
 (#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
+
+_Exerpt from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)_
 
