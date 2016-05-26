@@ -18,7 +18,7 @@ I could still hear a chorus of prayers, rising from the walls of the room. I cou
 I remember night after night, after coffee cups piled high in the sink and papers strewn about from study, I would leave everything as it was. I would sit in the silence most nights, and cry. The kind of cry that only gets interrupted by its own joyful smile.
 Because crying was the only offering I had. Words didn’t seem fit for how tenderly God was loving on me through those women.
 
-_I stood in my empty apartment feeling completely poured out. I had given God every bit of myself in that season. I was ready for the next._
+I stood in my empty apartment feeling completely poured out. I had given God every bit of myself in that season. I was ready for the next.
 
 In august of 2015 we moved from big city, to small country - a welcomed respite from the bustle of city living. I was ready for change. Ready to step out into the unknown and welcome what God had. I felt firm and grounded. _But in that moment, I knew not what I was actually standing on._
 
@@ -48,7 +48,7 @@ From thinking about house plans, to keeping our boxes packed.
 
 From thinking we were going to start putting down roots, only to be told we’d be leaving the following year.
 
-From never questioning our marriage a day in my life, to thinking it was going to go up in flames – and I was going to be the one to light it ablaze.
+From never questioning our marriage a day in my life, to thinking it was going to go up in flames – _and I was going to be the one to light it ablaze._
 
 From thinking his job was a sure thing, to accepting the fact it was never really ever ours in the first place.
 
@@ -62,25 +62,37 @@ In the mess, I started to realize… **I had been standing on my gifts, instead 
 
 Confident in what he had given me, but not confident in how he created me. 
 
-Confident in my gifts, but not confident that his plan would ever use them.
+Confident in my gifts, but not confident that his plan would ever use them again.
 
-I found myself asking God – Would you really, honestly and truly do ALL of that, just to send us out of here so soon? Would you really make me fall apart, for nothing?
+I found myself asking God – _Would you really, honestly and truly do ALL of that, just to send us out of here so soon? Would you really make me fall apart, for nothing?_
 
-And right back to my weary soul he speaks _“It’s all for something. I spare nothing, in order to take you deeper.”_
+And right back to my weary soul he spoke _“It’s all for something. I spare nothing, in order to take you deeper.”_
 
 And so I went. Deep into the caverns of my own messy soul, I faced the ugliness of my brokenness.  **I arrived in this new town feeling empty, so that what could be poured back in would change every piece of me.**
 
-Instead of hurrying up to fix myself, I let it burn. I let it fall. I let it all go, and things got dark. The gifts felt far, but my giver was closer still. Day by day, the load got lighter. The days brighter and the vision clearer. What seemed to be a dark heavy cloud all around, finally started streaming light.
+Instead of hurrying up to fix myself, I let it burn. I let it fall. I let it all go, and things got dark. *The gifts felt far, but my giver was closer still.* Day by day, the load got lighter. The days brighter and the vision clearer. What seemed to be a dark heavy cloud all around, finally started streaming light.
 
 In a few months, we leave this place. We pack it all up, and move somewhere new. But who we are now, is not who we were when we arrived. No. There’s no going back now. _We burned the ships that brought us here._
 
-** Leaving this place I stand taller in who God created me to be, unapologetically. Unstoppable, as I follow the call of God. Undefeatable, because no weapon formed against me shall prosper. Unstuck, moving gracefully from one season to the next. Undaunted, by the challenges of life. Uncommon, chasing a life countercultural to those around me. Unleashed, and not held captive by my past. ** *
+**Leaving this place I stand taller in who God created me to be, unapologetically. 
 
-When everything goes upside down, come undone.
+Unstoppable, as I follow the call of God. 
+
+Undefeatable, because no weapon formed against me shall prosper. 
+
+Unstuck, moving gracefully from one season to the next. 
+
+Undaunted, by the challenges of life.
+
+Uncommon, chasing a life countercultural to those around me.
+
+Unleashed, and not held captive by my past.** *
+
+When everything goes upside down, _come undone._
 
 _Come undone, and watch yourself become untamable for the kingdom._
 
-*Exerted from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)
+_Exerpt from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)_
 
 (#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
 
