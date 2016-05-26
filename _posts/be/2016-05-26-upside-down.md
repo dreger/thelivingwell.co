@@ -72,7 +72,7 @@ And so I went. Deep into the caverns of my own messy soul, I faced the ugliness 
 
 Instead of hurrying up to fix myself, I let it burn. I let it fall. I let it all go, and things got dark. Some days, I hardly wanted to get out of bed. Some days, I dont think I ever did. My spirit felt wrecked.
 
-The enemy had determined to wage war in my soul. Like he knew, who I would be on the other side of this, would threaten the very kingdom of darkness. *The gifts felt far, but my giver was closer still.* 
+The enemy had determined to wage war in my soul. Like he knew, who I would be on the other side of this, would threaten the very kingdom of darkness. *And while the gifts felt far, my giver was closer still.* 
 
 And so I pressed inward and onward. Day by day, the load got lighter. The days brighter and the vision clearer. What seemed to be a dark heavy cloud all around, finally started streaming light. 
 
