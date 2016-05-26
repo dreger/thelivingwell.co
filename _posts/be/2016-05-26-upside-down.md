@@ -70,13 +70,17 @@ And right back to my weary soul he spoke _“It’s all for something. I spare n
 
 And so I went. Deep into the caverns of my own messy soul, I faced the ugliness of my brokenness.  **I arrived in this new town feeling empty, so that what could be poured back in would change every piece of me.**
 
-Instead of hurrying up to fix myself, I let it burn. I let it fall. I let it all go, and things got dark. *The gifts felt far, but my giver was closer still.* Day by day, the load got lighter. The days brighter and the vision clearer. What seemed to be a dark heavy cloud all around, finally started streaming light.
+Instead of hurrying up to fix myself, I let it burn. I let it fall. I let it all go, and things got dark. Some days, I hardly wanted to get out of bed. Some days, I dont think I ever did. My spirit felt wrecked.
+
+The enemy had determined to wage war in my soul. Like he knew, who I would be on the other side of this, would threaten the very kingdom of darkness. *The gifts felt far, but my giver was closer still.* 
+
+And so I pressed inward and onward. Day by day, the load got lighter. The days brighter and the vision clearer. What seemed to be a dark heavy cloud all around, finally started streaming light. 
 
 In a few months, we leave this place. We pack it all up, and move somewhere new. But who we are now, is not who we were when we arrived. No. There’s no going back now. _We burned the ships that brought us here._
 
 Leaving this place I stand taller in who God created me to be, unapologetically. **Unstoppable,** as I follow the call of God. **Undefeatable,** because no weapon formed against me shall prosper. **Unstuck,** moving gracefully from one season to the next. **Undaunted,** by the challenges of life. **Uncommon,** chasing a life countercultural to those around me. **Unleashed,** and not held captive by my past. *
 
-When everything goes upside down, _come undone._
+When everything goes upside down, I'm suggesting to _come undone._
 
 _Come undone, and watch yourself become untamable for the kingdom._
 
