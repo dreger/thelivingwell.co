@@ -80,7 +80,7 @@ When everything goes upside down, _come undone._
 
 _Come undone, and watch yourself become untamable for the kingdom._
 
-(#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
+[#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
 
 _*Exerpt from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)_
 
