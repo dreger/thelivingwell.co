@@ -1,8 +1,8 @@
 ---
 title: "when everything goes upside down"
-asset: "filename of image (assumes a .jpg extension)" 
+asset: "courage" 
 category: be
-published: false
+published: true
 ---
 
 We sat on the hitch of the moving truck, the four of us. He and I, with friends we’d known since highschool. The friends who went through engagements and weddings a month apart from us. The friends we’d had with us in the city for 5 years. We sat on the hitch of the truck, with everything we owned packed inside. Reminiscing about the last time they helped us move, nearly 5 years ago. 
