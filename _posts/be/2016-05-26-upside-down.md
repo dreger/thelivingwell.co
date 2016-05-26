@@ -82,5 +82,5 @@ _Come undone, and watch yourself become untamable for the kingdom._
 
 (#graceinlivingwell](https://www.instagram.com/explore/tags/graceinlivingwell/)
 
-_Exerpt from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)_
+_*Exerpt from the [Propel woman](http://www.propelwomen.org/content/the-propel-woman/gjj2bs)_
 
