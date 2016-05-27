@@ -47,7 +47,7 @@ a {
 
 img {
   max-width: 100%; 
-  border-radius: 10px;
+  border-radius: 5px;
 }
 
 blockquote {
@@ -212,22 +212,21 @@ li { margin-bottom: 1.6rem; }
 
 @media (max-width: 800px) {
   .site-wrapper {
-    margin: 1rem auto; 
+    margin: 2rem auto; 
   }
   .site-content {
     display: initial;
   }
   .sidebar {
-//     flex: none;
     max-width: 100%; 
     padding-right: 0; 
   }
   .site-header-logo {
-	display: block; 
-	margin: 0 auto 2rem; 
+	  display: block; 
+	  margin: 0 auto 2rem; 
   }
   .sidebar-nav {
-    display: flex;
+    display: none;
   }
   .sidebar-nav-item { 
   	flex: 1  0 31%;
@@ -236,5 +235,11 @@ li { margin-bottom: 1.6rem; }
   .sidebar-nav-item-link {
     padding: 0 1rem;
 	}
+  .sidebar-social img {
+    max-width: 75%;
+  }
+  .sidebar-social li {
+    text-align: center; 
+  }
 	.hide-on-small { display: none; }
 }
