@@ -38,7 +38,12 @@ h6 {
 }
 
 h1 { font-size: 1.75em; }
-h2 { font-size: 1.45em; }
+h2 { 
+  font-size: 1.2875em; 
+  letter-spacing: .1em; 
+  text-transform: uppercase; 
+  color: $color; 
+}
 h3 { font-size: 1.2875em; }
 
 a {
@@ -141,7 +146,7 @@ li { margin-bottom: 1.6rem; }
 .site-footer {
   margin-top: 1rem; 
   display: flex; 
-  border-top: double #ddd; 
+  // border-top: double #ddd; 
 } 
 
 // Post-related

@@ -1,6 +1,7 @@
 ---
 layout: post
 asset: 'hustle'
+permalink: /about/
 category: about
 ---
 # Welcome to the living well.
