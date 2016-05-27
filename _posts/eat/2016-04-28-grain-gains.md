@@ -1,5 +1,5 @@
 ---
-title: "Grain gains"
+title: "grain gains"
 asset: "recipe" 
 category: eat
 published: true
