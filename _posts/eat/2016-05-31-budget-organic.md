@@ -72,7 +72,9 @@ At Aldi or Trader Joes, I get the following items organic, and they hold steady 
 Sometimes they’ll have organic beans, grains and lentils too. And you can usually find some organic spinach/greens. The thing about Aldi is, you never know what you might find. 
 
 I go once a month and stock up on the above items they always have, and then whatever else I find roaming the isles. With Aldi, you never have to wonder if you’ll get a better price somewhere else. You won’t. You can shop anxiety-free knowing you aren’t missing a better deal elsewhere. Just check the dates, make sure packaging is sealed and fall yourself in love with that hodge-podge of a place. 
+
 Mental barrier number one, overcome: Eating organic costs too much. It really doesn’t have to. It doesn’t have to be overwhelming. You don’t even have to shop at different stores.  It took me a while to get my system down, and it changes as the stores change. But I no longer enter the stores frustrated or overwhelmed. I know what I’m getting and I’m happy about what I’m spending.
+
 
 Want to make the journey to organic? Pick a few things, and start there. Make one swap in your pantry every week. Like those pre-packaged sides I mentioned? Try swapping processed foods with something slightly better. I swear, when you cook it up and serve it you’ll feel really good about yourself, and your body will thank you, too. 
 
