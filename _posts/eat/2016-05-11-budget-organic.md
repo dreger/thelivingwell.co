@@ -1,6 +1,6 @@
 ---
 title: "eating organic on a budget"
-asset: "organiccart)" 
+asset: "organiccart" 
 category: eat
 published: true
 ---
