@@ -43,17 +43,17 @@ Yep. You heard me. Walmart AND Aldi. Where we live right now, the selection of o
 
 Ok, here’s the good stuff. I mean, the stuff that gets me straight-up giddy. I buy a lot of other things too, obviously, but I don’t think you care to read my entire grocery list. Maybe you do? 
 
-Anyway, here’s a **list of organic things I buy at Walmart almost weekly:** <b/r>
--Spinach<b/r>
--Bananas<b/r>
--Onions<b/r>
--Zucchini<b/r>
--Blueberries<b/r>
--Bell peppers<b/r>
--Avocados<b/r>
--Limes<b/r>
--Beans (pinto and black)<b/r>
--Arborio Rice<b/r>
+Anyway, here’s a **list of organic things I buy at Walmart almost weekly:**<br>
+-Spinach<br>
+-Bananas<br>
+-Onions<br>
+-Zucchini<br>
+-Blueberries<br>
+-Bell peppers<br>
+-Avocados<br>
+-Limes<br>
+-Beans (pinto and black)<br>
+-Arborio Rice<br>
 
 The shopping cart pictured above is from Walmart. I left that trip with 20 items, but you’ll see some “items” contained multiples, like the onions and avocados. All told, I had everything listed above, plus tortilla chips, egg whites and almond milk and 5 packs of albacore tuna. I spent $42. 
 
@@ -63,11 +63,11 @@ Those beans are $.92cents/can. Not too much farther down the same isle, they sel
 
 Makes sense, yes? It just requires a bit of thinking. 
 
-At Aldi or Trader Joes, I get the following items organic, and they hold steady around these prices:
--Unsalted Peanut Butter: 3.99 all.day.long. (The ingredient list reads: peanuts. It makes my joy complete.) <b/r>
--Coconut oil: $4.99 <b/r>
--Quinoa: $3ish?<b/r>
--Chicken stock: Free range, organic, low sodium FOR TWO DOLLARS. Yeah. I’m yelling about it. Because you need tp know. <b/r>
+At Aldi or Trader Joes, I get the following items organic, and they hold steady around these prices:<br>
+-Unsalted Peanut Butter: 3.99 all.day.long. (The ingredient list reads: peanuts. It makes my joy complete.)<br>
+-Coconut oil: $4.99 <br>
+-Quinoa: $3ish?<br>
+-Chicken stock: Free range, organic, low sodium FOR TWO DOLLARS. Yeah. I’m yelling about it. Because you need tp know. <br>
 
 Sometimes they’ll have organic beans, grains and lentils too. And you can usually find some organic spinach/greens. The thing about Aldi is, you never know what you might find. 
 
