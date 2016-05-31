@@ -15,17 +15,20 @@ I hear similar sentiments from others, adding in comments like – The stores ar
 
 Eating well all the time CAN happen for you. And it doesn’t have to look like spending your whole paycheck at Whole Foods, raising your own chickens or never eating out.
 
-I think our predetermined attitude is the very thing that hold us back when it comes to making a positive change. We make up our mind based on what we’ve read or heard, and we don’t take time to find out for ourselves.
+An unchanging attitude is the very thing that hold us back when it comes to making a positive change. We make up our mind based on what we’ve read or heard, and we don’t take time to find out for ourselves.
 
-Decide what you want eating well to look like to for you, and then identify what your barriers are. For me, overcoming one mental barrier at a time seems to help me succeed in all areas of wellness. If I try to tackle everything once, it’s too much and I’ll likely get overwhelmed and quit.
+Decide what you want eating well to look like to for you, and then identify what your barriers are. For me, overcoming one mental barrier at a time seems to help me succeed in all areas of wellness. If I try to tackle everything at once, it’s too much and I’ll likely get overwhelmed and quit.
 
 If my three bad-attitude thoughts are: It costs too much, I’m not creative, and I ran out of time – I focus on one of those things first, to figure out how to alleviate or lessen the issue. 
 
-I’m going to share how I overcame three of my barriers to eating well, in a three post installment. The first- It costs too much: Eating organic on a budget.
+I’m going to share how I overcame three of my barriers to eating well, in a three post installment. 
+
+The first- **It costs too much: Eating organic on a budget.**
 
 Let me start by saying, you do not have to eat organic to eat well. Making an adjustment from processed food to whole food is a huge and life-changing step in itself. Again, it’s all about baby steps.
 
 I have been focused on a whole foods diet for a while, and over the last few years, decided I wanted to convert to nearly all organic, where possible. Why? A lot of reasons, that I would urge you to [research]( http://www.mayoclinic.org/healthy-lifestyle/nutrition-and-healthy-eating/in-depth/organic-food/art-20043880?pg=1) for yourself. Personally, the top reasons for me include: less exposure to chemicals, no added hormones, no GMO’s and better/sustainable care for the earth and livestock.
+
 I started with a small portion of my grocery’s, targeting the [dirty dozen](https://www.ewg.org/foodnews/list.php) produce list. I figured I would start with the foods that are most commonly known to carry residual pesticides.
 Once I decided WHAT I was going to convert to organic, the bigger question became where to shop and how to afford it all. So naturally, I did more research.
 
