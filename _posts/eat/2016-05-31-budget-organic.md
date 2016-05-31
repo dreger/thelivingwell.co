@@ -43,17 +43,17 @@ Yep. You heard me. Walmart AND Aldi. Where we live right now, the selection of o
 
 Ok, here’s the good stuff. I mean, the stuff that gets me straight-up giddy. I buy a lot of other things too, obviously, but I don’t think you care to read my entire grocery list. Maybe you do? 
 
-Anyway, here’s a **list of organic things I buy at Walmart almost weekly:**
--Spinach <b/r>
--Bananas <b/r>
--Onions <b/r>
--Zucchini <b/r>
--Blueberries <b/r>
--Bell peppers <b/r>
--Avocados <b/r>
--Limes <b/r>
--Beans (pinto and black) <b/r>
--Arborio Rice <b/r>
+Anyway, here’s a **list of organic things I buy at Walmart almost weekly:** <b/r>
+-Spinach<b/r>
+-Bananas<b/r>
+-Onions<b/r>
+-Zucchini<b/r>
+-Blueberries<b/r>
+-Bell peppers<b/r>
+-Avocados<b/r>
+-Limes<b/r>
+-Beans (pinto and black)<b/r>
+-Arborio Rice<b/r>
 
 The shopping cart pictured above is from Walmart. I left that trip with 20 items, but you’ll see some “items” contained multiples, like the onions and avocados. All told, I had everything listed above, plus tortilla chips, egg whites and almond milk and 5 packs of albacore tuna. I spent $42. 
 
