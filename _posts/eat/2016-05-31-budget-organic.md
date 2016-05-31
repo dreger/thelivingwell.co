@@ -39,7 +39,7 @@ You don’t have to buy organic food at expensive and branded stores. Sure, the 
 
 After shopping around, my favorite and most reliable organic stops have come to include Walmart, Aldi and Trader Joes. 
 
-Yep. You heard me. Walmart AND Aldi. Where we live right now, the selection of organic at the local grocery store pales in comparison to these two large stores. Before you get all judgy thinking “You don’t shop local? GASP!” Oh, hush. I do shop at a local health food store for pantry items and I patronize local farmers for my meat, which I’ll write about later. And if the local stores start carrying more/better organic options, I’ll certainly buy more there.
+Yep. You heard me. Walmart AND Aldi. Before you get all judgy thinking “You don’t shop local? GASP!” Oh, hush. I do shop at a local health food store for pantry items, certain produce, and I patronize local farmers for my meat, which I’ll write about later. I just can't always get everything I need at the local spots. Some towns have a lack of local options, and these stores consistently carry organic.
 
 Ok, here’s the good stuff. I mean, the stuff that gets me straight-up giddy. I buy a lot of other things too, obviously, but I don’t think you care to read my entire grocery list. Maybe you do? 
 
