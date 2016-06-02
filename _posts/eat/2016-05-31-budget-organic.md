@@ -15,9 +15,9 @@ I hear similar sentiments from others, adding comments like – The stores aroun
 
 Eating well all the time CAN happen for you. And it doesn’t have to look like spending your whole paycheck at Whole Foods, raising your own chickens or never eating out.
 
-An unchanging attitude is the very thing that hold us back when it comes to making a positive change. We make up our mind based on what we’ve read or heard, and we don’t take time to find out for ourselves.
+An unchanging attitude is the very thing that hold us back when it comes to making a positive change. We tend to make up our mind based on what we’ve read or heard, insteading of finding out for ourselves.
 
-Decide what you want eating well to look like to for you, and then identify what your barriers are. For me, overcoming one mental barrier at a time seems to help me succeed in all areas of wellness. If I try to tackle everything at once, it’s too much and I’ll likely get overwhelmed and quit.
+Decide how you want eating well to look like to for you, and then identify what your barriers are. For me, overcoming one mental barrier at a time seems to help me succeed in all areas of wellness. If I try to tackle everything at once, it’s too much and I’ll likely get overwhelmed and quit.
 
 If my three bad-attitude thoughts are: It costs too much, I’m not creative, and I ran out of time – I focus on one of those things first, to figure out how to alleviate or lessen the issue. 
 
@@ -25,7 +25,7 @@ I’m going to share how I overcame three of my barriers to eating well, in a th
 
 The first- **It costs too much: Eating organic on a budget.**
 
-Let me start by saying, you do not have to eat organic to eat well. Making an adjustment from processed food to whole food is a huge and life-changing step in itself. Again, it’s all about baby steps.
+Let me start by saying, you do not have to eat organic to eat well. Making an adjustment from processed food to whole food is a huge and life-changing step in itself. Its about the journey.
 
 Over the last few years I decided to slowly converty to organic. Why? A lot of reasons, that I would urge you to [research]( http://www.mayoclinic.org/healthy-lifestyle/nutrition-and-healthy-eating/in-depth/organic-food/art-20043880?pg=1) for yourself. Personally, the top reasons for me include: less exposure to chemicals, no added hormones, no GMO’s and better/sustainable care for the earth and livestock.
 
