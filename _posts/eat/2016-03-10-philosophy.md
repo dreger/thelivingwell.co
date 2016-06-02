@@ -27,9 +27,9 @@ Here’s an overview of what my nutrition game looks like.
 
 Here’s what I don’t do:
 
-**Restrictive plans.** I am not a vegetarian or vegan, and I do not endorse paleo, atkins or any other restrictive eating lifestyle. We do not have any diseases or food allergies (other than my lame dairy intolerance) that require us to restrict any one food group.
+**Restrictive plans.** I am not a vegetarian or vegan, and I do not endorse paleo, atkins or any other restrictive eating lifestyle. We do not have any diseases or food allergies that require us to restrict any one food group. Recently, I decided to not eat dairy at all. More on THAT journey later.
 
-**Refined.** I limit are refined grains and sugar based on personal preference. Sugar is my big thing. I’ll bore you on that later, sister.
+**Refined.** I limit refined grains and sugar based on personal preference. Sugar is my big thing. I’ll bore you on that later, sister.
 
 **Alcohol.** It’s not that we don’t drink, mama loves a good glass of cabernet. But just once a week, maybe two if it’s a special weekend. Honestly, I just don’t love the way it makes my body feel. So I make sure to get enough H2O in while sipping my cocktails.
 
@@ -45,4 +45,4 @@ Earth shattering, right? I know. I’ll let it sink in.
 
 If you take only one thing from this post, let it be this: Food is not your enemy. Find what works for you, what makes you feel good and own it. Owning our health is something no one else can do for us. There can be freedom with food, I promise. Dont believe me? Check out this [book.](http://madetocrave.org/)
 
-**Peace, love and macros.**
+**Peace, love, and macros.**
