@@ -27,7 +27,7 @@ I have only been able to find this line at TJMaxx. Again, clouds for your legs. 
 
 [Bright Tanks:](http://oldnavy.gap.com/browse/product.do?cid=1061078&vid=1&pid=143021082) I get a lot of my tanks at OldNavy. Where, ironically today, there is a SALE on athletic gear. No, they dont pay me for this. I just cant pass up a good sale. $5 tanks, ya'll. Get some. 
 
-Overall, my clothing selections are based on 3 criteria: Material softness, versatility, and price. I love really wild colored leggings, but I can only pair them with certain tops. So I try to make all of my clothing (both athletic an non) easily mix-and-matchable. Fewer restrictions equal more options. And that makes getting up early and doing sun salutations at sunrise, even easier.
+Overall, my clothing selections are based on 3 criteria: Material softness, versatility, and price. I love really wild colored leggings, but I can only pair them with certain tops. So I try to make all of my clothing (both athletic an non) easily mix-and-matchable. Fewer restrictions equals more options. And that makes getting up early and doing sun salutations at sunrise, even easier.
 
 Peace, love, and soft fabrics.
 
