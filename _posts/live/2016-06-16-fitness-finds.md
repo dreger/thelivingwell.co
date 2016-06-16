@@ -11,7 +11,9 @@ I also live on the extremes when it comes to my wardrobe. You’ll either find m
 
 It’s taken me a while to build my athletic wardrobe. I’m pretty intentional about what I own in terms of clothing. I’m a believer that less is more. I used to have a ton of options in my closet, for all occasions. Yet somehow, I always felt like I had nothing to wear. I figured out that too many options make nothing seem like a great option.  Having a smaller wardrobe, comprised of things I LOVE, ensures I never have a hard time deciding what to wear, because it’s all gold to me.
 
-I don’t have a particular brand allegiance. Much like my color options, I’m usually a walking billboard for a variety of athletic brands. I do, however, shop almost exclusively at TJMaxx. I can get all the brands I love, for a fraction of the regular price. Here are a few items I love, and will continue to buy when the items I own become unwearable.
+I don’t have a particular brand allegiance. Much like my color options, I’m usually a walking billboard for a variety of athletic brands. I do, however, shop almost exclusively at [TJMaxx.](http://tjmaxx.tjx.com/store/index.jsp) I can get all the brands I love, for a fraction of the regular price. 
+
+Here are a few items I love:
 
 [New-balance capris:](http://tjmaxx.tjx.com/store/jump/product/women-clothing-activewear-capris/Space-Dye-Capri/1000130411?colorId=NS1003462&pos=1:78&N=2755249271)
 These are the bomb. They are like walking around in a cloud. Honestly, it’s like wearing no pants. Which, I now realize, is likely why I am obsessed with them. They are dry-wick material, ideal for sweaty days. I found them at TJMaxx for $20 and they are by far, the best $20 ever spent.
@@ -21,9 +23,11 @@ I have only been able to find this line at TJMaxx. Again, clouds for your legs. 
 
 [Gaim bra:](http://www.kohls.com/product/prd-2082607/gaiam-bra-shine-wire-free-low-impact-yoga-sports-bra-44-00001-womens.jsp?color=Black) Because bras with pretty backs make me happy. This one is low impact, so it’s ideal for yoga, but not for running.
 
-[Adidas hat:](http://www.kohls.com/product/prd-2395144/womens-adidas-studio-marled-baseball-hat-.jsp?ci_mcc=ci&utm_campaign=FASHION%20ACCESSORIES&utm_medium=CSE&utm_source=google&utm_product=30880564&CID=shopping15&gclid=CjwKEAjw4dm6BRCQhtzl6Z6N4i0SJADFPu1nzhHM8ys9CNNS8pi1ei6icR6N-gc-5S2jAD2MkAkdBoCAOfw_wcB&gclsrc=aw.ds&dclid=CK6ZnMails0CFUoFNwodveUF8g)I have 3 hair styles: Washed and curled, unwashed and braided, and Ball cap. Oh, you didn’t know? Ball cap IS a hairstyle. I love this hat, when I’m out and about and my hair is less-than public appropriate, or when I want some extra protection from the sun. Sweat-wicking material makes it really comfortable and breathable.
+[Adidas hat:](http://www.kohls.com/product/prd-2395144/womens-adidas-studio-marled-baseball-hat-.jsp?ci_mcc=ci&utm_campaign=FASHION%20ACCESSORIES&utm_medium=CSE&utm_source=google&utm_product=30880564&CID=shopping15&gclid=CjwKEAjw4dm6BRCQhtzl6Z6N4i0SJADFPu1nzhHM8ys9CNNS8pi1ei6icR6N-gc-5S2jAD2MkAkdBoCAOfw_wcB&gclsrc=aw.ds&dclid=CK6ZnMails0CFUoFNwodveUF8g) I have 3 hair styles: Washed and curled, unwashed and braided, and Ball cap. Oh, you didn’t know? Ball cap IS a hairstyle. I love this hat, when I’m out and about and my hair is less-than public appropriate, or when I want some extra protection from the sun. Sweat-wicking material makes it really comfortable and breathable.
 
-Overall, my selections are based on 3 criteria: Material softness, versatility and price. I love really wild colored leggings, but I can only pair them with certain tops. So I try to make all of my clothing (both athletic an non) easily mix-and-matchable. Fewer restrictions equal more options. And that makes getting up early and doing sun salutations at sunrise, even easier.
+[Bright Tanks:](http://oldnavy.gap.com/browse/product.do?cid=1061078&vid=1&pid=143021082) I get a lot of my tanks at OldNavy. Where, ironically today, there is a SALE on athletic gear. No, they dont pay me for this. I just cant pass up a good sale. $5 tanks, ya'll. Get some. 
+
+Overall, my clothing selections are based on 3 criteria: Material softness, versatility, and price. I love really wild colored leggings, but I can only pair them with certain tops. So I try to make all of my clothing (both athletic an non) easily mix-and-matchable. Fewer restrictions equal more options. And that makes getting up early and doing sun salutations at sunrise, even easier.
 
 Peace, love, and soft fabrics.
 
