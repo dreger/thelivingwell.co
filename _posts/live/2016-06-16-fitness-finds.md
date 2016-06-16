@@ -17,7 +17,7 @@ I don’t have a particular brand allegiance. Much like my color options, I’m 
 These are the bomb. They are like walking around in a cloud. Honestly, it’s like wearing no pants. Which, I now realize, is likely why I am obsessed with them. They are dry-wick material, ideal for sweaty days. I found them at TJMaxx for $20 and they are by far, the best $20 ever spent.
 
 [Balance collection leggings:]( http://tjmaxx.tjx.com/store/jump/product/women-clothing-activewear-capris/Petal-Back-Capri/1000133476?colorId=NS1003537&pos=1:31&N=2755249271) 
-This line I have only been able to find at TJMaxx. Again, clouds for your legs. Softest material ever and the fit is really flattering. I have a few colors of these, and choosing my favorite would be like choosing a favorite child.
+I have only been able to find this line at TJMaxx. Again, clouds for your legs. Softest material ever and the fit is really flattering. I have a few colors of these, and choosing my favorite would be like choosing a favorite child.
 
 [Gaim bra:](http://www.kohls.com/product/prd-2082607/gaiam-bra-shine-wire-free-low-impact-yoga-sports-bra-44-00001-womens.jsp?color=Black) Because bras with pretty backs make me happy. This one is low impact, so it’s ideal for yoga, but not for running.
 
