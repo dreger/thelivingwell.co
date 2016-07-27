@@ -12,7 +12,7 @@ I think balancing life is hard. Eating well (or remembering to eat at all), stay
 
 We have so many opinions, trends, and how-to's thrown at us on a daily basis. Its too much. I want to claim back the power to choose what wellness looks like, unique to our own souls.
 
-Hate yoga? Good for you. Rather eat tree bark than try kale? Lean into that, sister. I want to bring back authenticity in wellness. My hope is, this space will motivate you to find your own healthy rhythms.
+Dont understand yoga? I feel you. Rather eat tree bark than try kale? Lean into that, sister. I want to bring back authenticity in wellness. My hope is, this space will motivate you to find your own healthy rhythms.
 
 Wellness looks different on all of us, and that is a beautiful thing. It's a divine balance of determination and grace, of self-awareness and self-denial. It requires us to take inventory of our heart and be willing to sweep the caverns of our soul. It's being willing to ask hard questions and muster up the courage to act on the answers. 
 
