@@ -1,6 +1,6 @@
 ---
 layout: post
-asset: 'hustle'
+asset: 'aboutme1'
 permalink: /about/
 category: about
 ---
