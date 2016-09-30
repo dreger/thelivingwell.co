@@ -13,4 +13,4 @@ It has to do with how many times you've tried and failed, and then got up and tr
 
 Want to cultivate something in your life? Stay with it for a while, and watch the process change you.
 
-I am convinced the most rewarding things in life are the things we endure for many seasons, when every fiber in our being wants to quit. These things are not rewarding, neccesarily, because they bear fruit the way we intended, but rather because in the process of learning hard things, we are broken and put back together new. 
+I am convinced the most rewarding things in life are the things we endure for many seasons, when every fiber in our being wants to quit. We stay, and things change. Stay and watch the process of learning something difficult break you down and put you back together new. Its vulnerable and chaotic and sometimes it feels like a pile of ruins. But the ruins? Thats where new life begins.
