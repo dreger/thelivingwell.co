@@ -39,4 +39,4 @@ peace, love, and wellness
 sarah
 
 
-
+**Want to get in touch? Find me on Instagram, Facebook, or Pinterest. Or, email me thelivingwell.co@gmail.com**
