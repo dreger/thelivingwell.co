@@ -216,6 +216,47 @@ li { margin-bottom: 1.6rem; }
   border: 1px solid white; 
 }
 
+
+
+  a { text-decoration: none; }
+  a:hover { text-decoration: underline; }
+
+  .readmore-button {
+    font-size: .9em;
+    text-transform: uppercase; 
+    letter-spacing: .1em; 
+    color: #aaa; 
+    border: solid 2px #ccc; 
+    display: inline-block;
+    padding: .5em 1.5em;
+  }
+  .readmore-button:hover {
+    border-color: $color; 
+    text-decoration: none; 
+    color: $color;
+  }
+
+  .card {
+    background: white;
+    border-radius: 4px; 
+    margin-bottom: 2rem; 
+    overflow: auto; 
+    max-width: 30em; 
+  }
+  .card-image {
+    display: block; 
+    margin: 0 auto; 
+    border-radius: 0; 
+  }
+  .card-content { padding: 1rem; }
+  .card-header { 
+    font-weight: bold;  
+    margin-bottom: 2rem;
+  }
+  .card-header--title { margin-bottom: .5rem; }
+  .card-header--title a { color: black; }
+
+
 @media (max-width: 800px) {
   .site-wrapper {
     margin: 2rem auto; 
