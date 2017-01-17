@@ -122,18 +122,6 @@ li { margin-bottom: 1.6rem; }
   }
 }
 
-.sidebar-social {
-  margin: 0; 
-  padding: 0; 
-  display: flex; 
-  li {
-    display: inline; 
-  }
-  img { margin: 0; }
-  a {
-    text-decoration: none; 
-  }
-}
 
 .active {
   color: white; 
@@ -147,8 +135,23 @@ li { margin-bottom: 1.6rem; }
 .site-footer {
   margin-top: 1rem; 
   display: flex; 
-  // border-top: double #ddd; 
+  background: white;
+  text-align: center;  
 } 
+
+.site-footer--social {
+  margin: 0; 
+  padding: 0; 
+  display: flex; 
+  text-align: center; 
+  li {
+    display: inline; 
+  }
+  img { margin: 0; }
+  a {
+    text-decoration: none; 
+  }
+}
 
 // Post-related
 
