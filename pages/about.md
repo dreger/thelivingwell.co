@@ -16,25 +16,22 @@ I'm a wild and free spirit, secure in my place as a daughter of the King.
 
 I practice and teach yoga as a union of mental, physical, and spiritual health. 
 
-I'm a recovering perfectionist. I used to live a life of falsehoods. Sometimes, I still try to.
+I'm a recovering perfectionist. I used to live a life of falsehoods. Sometimes, I still do.
 
-I like to doodle letters and drink coffee. A lot of coffee.
+I like to doodle letters and drink coffee. A lot of coffee. Sometimes it makes my left eye twitch.
 
-I'm in love with a PhD chemist. Our marriage is beautiful because it knows ugly. 
+I'm in love with a PhD chemist. Our 5-year-and-counting marriage is beautiful because it knows ugly. 
 
 I don't like pants, unless they are yoga pants. And Husband says those don't even count as pants. 
 
-I bear the pain of infertility. Though, If I am honest, I don't always feel it. 
+I bear the pain of infertility. Though, if I am completely honest, I don't always *feel* it. 
 
-I currently live in Oxford, England. Read why.
+I currently live in Oxford, England. It is magic here.
 
-Truth-telling is hard for me.
-
-I fear rejection. Because to me, that means I have failed someone. 
+Truth-telling is hard for me, because I fear rejection. 
 
 I am wild about marginalized people. The felon, the refugee, the loner. You can all sit with me. 
 
-I try to live according to this: whispered love speaks louder than shouted hate.
 
 
 # Why living well?#
