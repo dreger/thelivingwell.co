@@ -4,39 +4,47 @@ asset: 'aboutme1'
 permalink: /about/
 category: about
 ---
-# Welcome to the living well.
 
-Im glad you're here. Why am I here? Good question. 
+Hi. I'm Sarah
 
-I think balancing life is hard. Eating well (or remembering to eat at all), staying active (or making it out of bed) and spending time with God (or...not) becomes a lot to juggle amid the rest of our busy lives. But I believe I am free to be my best self when I pursue wellness in all areas of my life.
+I am certain I already love the heck outta you, but in case you're still unsure about me, here are some <strike>fun<strike> real facts:
 
-We have so many opinions, trends, and how-to's thrown at us on a daily basis. Its too much. I want to claim back the power to choose what wellness looks like, unique to our own souls.
+I'm a writer, and spend most days convincing myself I actually am.
 
-Dont understand yoga? I feel you. Rather eat tree bark than try kale? Lean into that, sister. I want to bring back authenticity in wellness. My hope is, this space will motivate you to find your own healthy rhythms.
+I'm a wild and free spirit, secure in my place as a daughter of the King.
 
-Wellness looks different on all of us, and that is a beautiful thing. It's a divine balance of determination and grace, of self-awareness and self-denial. It requires us to take inventory of our heart and be willing to sweep the caverns of our soul. It's being willing to ask hard questions and muster up the courage to act on the answers. 
+I practice and teach yoga as a union of mental, physical, and spiritual health. 
 
-Wellness is not about _feeling well_ all the time. Infact, sometimes it feels a bit messy when we press into our most genuine selves. Being well is about leaning into the messy places of our heart and allowing God to do work.
+I'm a recovering perfectionist. I used to live a life of falsehoods. Sometimes, I still try to.
 
-_We pursue wellness, and God is the one who makes it so._
+I like to doodle letters and drink coffee. A lot of coffee.
 
-I write according to three general categories, because I like to be organized (and odd numbers make me happy)
+I'm in love with a PhD chemist. Our marriage is beautiful because it knows ugly. 
 
-**Be Well:** Spirituality and walking with Jesus - who is our living water from the living well. (get it?)
+I don't like pants, unless they are yoga pants. And Husband says those don't even count as pants. 
 
-**Eat Well:** Food, food, food. Because, I love food and food is fuel.
+I bear the pain of infertility. Though, If I am honest, I don't always feel it. 
 
-**Live Well:** Practically living it out. What wellness looks like for me from day-to-day.
+I currently live in Oxford, England. Read why.
 
-This corner of the internet, much like my life, is a work in progress. Sit with your messiness, and read about mine. It’ll make you feel like you’re not the only one who can't get it together, promise. 
+Truth-telling is hard for me.
 
-I hope my wellness journey encourages you to claim freedom in yours.
+I fear rejection. Because to me, that means I have failed someone. 
 
-**“Everyone who drinks this water will be thirsty again, but whoever drinks the water I give them will never thirst. Indeed, the water I give them will become in them a spring of water, welling up to eternal life” John 4:13-14**
+I am wild about marginalized people. The felon, the refugee, the loner. You can all sit with me. 
 
-peace, love, and wellness
+I try to live according to this: whispered love speaks louder than shouted hate.
 
-sarah
+
+# Why living well?#
+
+I spent years trying on everyone else's plan for living well, only to find myself tripping over routines too big and dreams too small. Fed up with failure, I started taking risks and stopped caring about what other people thought. When I began living in ways that made other people uncomfortable, I finally felt at home in my own life.
+
+That's when I realized, living well has to look different on everyone, in order for any of us to really thrive. Each journey to living well will look wildly different.  But the brave space we step into to get there? That's the same. Living well requires brave vulnerability of self and sincere championing of another. 
+
+It's why I write. The vulnerable space frees me to live my best life, and hopefully, champions you to press on in yours. 
+
+There's such grace in living well. 
 
 
 **Want to get in touch? Find me on Instagram, Facebook, or Pinterest. Or, email me thelivingwell.co@gmail.com**
