@@ -5,9 +5,9 @@ permalink: /about/
 category: about
 ---
 
-Hi. I'm Sarah
+Hi. I'm Sarah Kay.
 
-I am certain I already love the heck outta you, but in case you're still unsure about me, here are some <s>fun<s>
+I am certain I already love the heck outta you, but in case you're still unsure about me, here are some <s>fun</s>
 real facts:
 
 I'm a writer, and spend most days convincing myself I actually am.
