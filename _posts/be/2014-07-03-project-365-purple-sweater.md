@@ -1,5 +1,5 @@
 ---
-title: 'Project 365: Purple Sweater'
+title: 'The Purple Sweater'
 asset: 'thin-pink'
 category: be
 published: false

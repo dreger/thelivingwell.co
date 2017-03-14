@@ -2,7 +2,7 @@
 title: "peace and love"
 asset: "lovepeacesm" 
 category: be
-published: true
+published: false
 ---
 
 Jesus teaches on many things, but he only deems two commands the greatest: **love God, and love your neighbor.** Easy, right? Seems like it should be. But what I hear loudest in the world right now, has little to do with love. I hear clanging symbols speaking hate, and classifying neighbors as "others."
