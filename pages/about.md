@@ -1,9 +1,12 @@
 ---
-layout: post
+layout: page
 asset: 'aboutme1'
 permalink: /about/
 category: about
 ---
+
+<div class="card about" markdown="1">
+# Welcome to the living well.
 
 Hi. I'm Sarah Kay.
 
@@ -46,3 +49,4 @@ There's such grace in living well.
 
 
 **Want to get in touch? Find me on Instagram, Facebook, or Pinterest. Or, email me thelivingwell.co@gmail.com**
+</div>

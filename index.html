@@ -1,23 +1,15 @@
 ---
-layout: post
+layout: page
 asset: 'hellosm'
 ---
-<h1>Welcome to the living well.</h1>
 
-<p>I want to make space for the authentic pursuit of wellness. Don't understand yoga? I feel you. Rather eat tree bark than try kale? Lean into that, sister. Your journey won't look like mine, and that's what I'm after. Read about my journey to living well, while claiming healthy rhythms that are all your own.</p>
-
-<br><br>
-<h2>recent posts</h2>
-<br>
-
-{% for post in site.posts limit: 5 %}
-<a class="post-snippet" href="{{ post.url }}">
-  {% if post.asset %}
-    <span class="post-snippet-asset"><img src="/assets/images/{{ post.asset }}.jpg"></span>
-  {% endif %}
-  <span class="post-snippet-text">
-    <h1 class="post-snippet-title">{{ post.title }}</h1>
-    <span class="post-snippet-excerpt">{{ post.content | strip_html | truncate: 140 }}</span>
-  </span>
-</a>
+{% for post in site.posts limit: 1 %}
+  {% include post.html post=post %}
 {% endfor %}
+
+
+<div class="flex flex-wrap homepage-cards">
+  {% for post in site.posts offset: 1, limit: 2 %}
+    {% include post.html post=post class='w-50' %}
+  {% endfor %}
+</div>
