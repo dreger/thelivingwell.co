@@ -1,6 +1,6 @@
 ---
 title: "same but different"
-asset: "lightpink" 
+asset: "beach" 
 category: be
 published: true
 ---
