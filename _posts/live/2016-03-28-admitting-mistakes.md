@@ -1,6 +1,6 @@
 ---
 title: "practicing imperfection: admitting mistakes"
-asset: "twoflowers" 
+asset: "false" 
 category: live
 published: True
 ---
