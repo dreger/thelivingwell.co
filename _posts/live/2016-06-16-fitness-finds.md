@@ -2,7 +2,7 @@
 title: "fitness finds"
 asset: "clothes" 
 category: live
-published: true
+published: false
 ---
 
 I live in my yoga attire. Not kidding. 
