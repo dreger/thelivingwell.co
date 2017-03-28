@@ -2,7 +2,7 @@
 title: "fitness things"
 asset: "fitbit" 
 category: live
-published: true
+published: false
 ---
 
 Points for creative post title, check.
