@@ -2,7 +2,7 @@
 title: "staying power"
 asset: "stayingpower" 
 category: live
-published: true
+published: false
 ---
 
 I often hear of people wanting results without effort. They want to have a powerful yoga practice without getting on their mat every day. They want to master calligraphy the first time they pick up a pen. They want to have an eye for photography, without cultivating it. This applies to everything: careers, hobbies, relationships.
