@@ -48,5 +48,5 @@ It's why I write. The vulnerable space frees me to live my best life, and hopefu
 There's such grace in living well. 
 
 
-**Want to get in touch? Find me on Instagram, Facebook, or Pinterest. Or, email me thelivingwell.co@gmail.com**
+**Want to get in touch? Subscribe to my monthly newsletter. You'll also get free things. Not kidding.**
 </div>
