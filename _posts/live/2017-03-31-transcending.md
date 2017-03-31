@@ -1,7 +1,7 @@
 ---
 title: "transcending pain"
 asset: "transcending" 
-category: be
+category: live
 published: true
 ---
 
