@@ -33,3 +33,6 @@ I transcend pain, not because I have silenced it. I transcend pain because I hav
 
 Pain is the seed of the tree, not the leaves that grow.
 
+live well,
+**Sarah Kay**
+
