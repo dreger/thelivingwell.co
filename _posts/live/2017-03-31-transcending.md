@@ -5,7 +5,9 @@ category: live
 published: true
 ---
 
-Everything about my life feels perfect. I’ve never had a season like this before. And I find myself feeling guilty. Certainly, it's not fair for my life to be this abundantly rich. No, not when there is so much suffering around me. I keep waiting for the other shoe to drop. I keep looking for the "but.."
+Everything about my life feels perfect. I’ve never had a season like this before. And I find myself feeling guilty. Certainly, it's not fair for my life to be this abundantly rich. 
+
+No, not when there is so much suffering around me. I keep waiting for the other shoe to drop. I keep looking for the "but.."
 
 The interesting thing is, my life is not perfect. I've been managing chronic back pain. I am an entire ocean away from friends and family. I am still navigating how to live with infertility. I have heavy things on my shoulders, yet the load feels anything but. 
 
@@ -19,7 +21,7 @@ _And when the world around you looks like a letter of love, joy abounds._
 
 I wasn't always this way. Infact, I used to wear suffering as a badge of honor. I’ve only recently learned how to [let go of past pain.](http://thelivingwell.co/be/let-go) I thought having some kind of pain or drama, was the unifier of all humanity. I believed if I wasn’t operating from pain, I wasn’t actually alive. **But the thing about pain is, you can be fully awake to it, without being led by it.** 
 
-I want to spend the energy of my life being led by my spirit, not my wounds. Because when my tank is full of joy, it becomes my greatest gift to give it away.
+I want to spend the energy of my life being led by my spirit, not my wounds. My spirit is made for joy. And when my heart is joy-full, it becomes my greatest gift to give it away.
 
 I've found a few rhythms that help me foster joy. 
 
