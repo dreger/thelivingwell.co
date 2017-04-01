@@ -2,7 +2,7 @@
 title: "travel well"
 asset: "travel" 
 category: eat
-published: true
+published: false
 ---
 This is for all the self-proclaimed road warriors.
 
