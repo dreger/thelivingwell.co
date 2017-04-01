@@ -18,19 +18,19 @@ Enter: Almond cookies.
 They are decadent. And, they resemble a traditional chocolate chip cookie. These ones don't taste like almond, per se. But you could sub out the vanilla extract, for almond extract and I bet those would be divine. Also, I bet subbing butter for coconut oil would make them taste more like a traditional cookie. But I prefer the health-profile of coconut oil for my fat intake.
 
 **Stats:** Roughly 125 calories per cookie (almonds are high calorie, but oh so good for you.)
-</br> 11grams Fat / 4grams Carb / 3grams Protein
+11grams Fat / 4grams Carb / 3grams Protein
 
 **THE INGREDIENTS //**
-1 cup almond flour</br>
-2 1/2 tbsp coconut oil (melted)</br>
-1-2 tbsp pure maple syrup. (I find 1tbsp is plenty sweet for me)</br> 
-1 tsp vanilla extract (or almond. Oo! Or Mint)</br> 
-1/4 tsp baking powder</br>
-2-3 squares of dark cacao (70% is a nice balanace of bitter sweet)</br> 
-Pinch of salt.</br> 
+</br>1 cup almond flour
+2 1/2 tbsp coconut oil (melted)
+1-2 tbsp pure maple syrup. (I find 1tbsp is plenty sweet for me)
+1 tsp vanilla extract (or almond. Oo! Or Mint) 
+1/4 tsp baking powder
+2-3 squares of dark cacao (70% is a nice balanace of bitter sweet)
+Pinch of salt. 
 
 **THE METHOD //**
-</br> Melt coconut oil, and let return to room temp (otherwise your chocolate will just melt)
+ Melt coconut oil, and let return to room temp (otherwise your chocolate will just melt)
 </br> Combine wet ingredients in a bowl.
 </br> Combine dry ingredients in a bowl.
 </br> Mix together.
