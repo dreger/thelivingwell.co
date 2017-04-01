@@ -21,13 +21,13 @@ They are decadent. And, they resemble a traditional chocolate chip cookie. These
 </br> 11grams Fat / 4grams Carb / 3grams Protein
 
 **THE INGREDIENTS //**
-</br> 1 cup almond flour
-</br> 2 1/2 tbsp coconut oil (melted)
-</br> 1-2 tbsp pure maple syrup. (I find 1tbsp is plenty sweet for me)
-</br> 1 tsp vanilla extract (or almond. Oo! Or Mint)
-</br> 1/4 tsp baking powder
-</br> 2-3 squares of dark cacao (70% is a nice balanace of bitter sweet)
-</br> Pinch of salt.
+1 cup almond flour</br>
+2 1/2 tbsp coconut oil (melted)</br>
+1-2 tbsp pure maple syrup. (I find 1tbsp is plenty sweet for me)</br> 
+1 tsp vanilla extract (or almond. Oo! Or Mint)</br> 
+1/4 tsp baking powder</br>
+2-3 squares of dark cacao (70% is a nice balanace of bitter sweet)</br> 
+Pinch of salt.</br> 
 
 **THE METHOD //**
 </br> Melt coconut oil, and let return to room temp (otherwise your chocolate will just melt)
