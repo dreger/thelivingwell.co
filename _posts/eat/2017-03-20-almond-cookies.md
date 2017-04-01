@@ -24,13 +24,13 @@ They are decadent. And, they resemble a traditional chocolate chip cookie. These
 </br> 1 cup almond flour
 </br> 2 1/2 tbsp coconut oil (melted)
 </br> 1-2 tbsp pure maple syrup. (I find 1tbsp is plenty sweet for me)
-</br>  1 tsp vanilla extract (or almond. Oo! Or Mint)
+</br> 1 tsp vanilla extract (or almond. Oo! Or Mint)
 </br> 1/4 tsp baking powder
 </br> 2-3 squares of dark cacao (70% is a nice balanace of bitter sweet)
 </br> Pinch of salt.
 
 **THE METHOD //**
-Melt coconut oil, and let return to room temp (otherwise your chocolate will just melt)
+</br> Melt coconut oil, and let return to room temp (otherwise your chocolate will just melt)
 </br> Combine wet ingredients in a bowl.
 </br> Combine dry ingredients in a bowl.
 </br> Mix together.
@@ -38,10 +38,11 @@ Melt coconut oil, and let return to room temp (otherwise your chocolate will jus
 </br> Chop chocolate squares into chunks, and fold in.
 </br> Use your hands to roll them into one inch balls. They dough will stick upon compression.
 </br> Place balls on cookie sheet, and lightly dimple the top with your thumb.
-Bake at 350 for 5-7 minutes or until brown. You dont want to bake them too long, as the moisture will leave them quickly.
-Let cool on pan, to keep their shape.
 
-I keep mine in a class container and eat them for breakfast, snack, and second breakfast.
+Bake at 350 for 5-7 minutes or until brown. You dont want to bake them too long, as the moisture will leave them quickly.
+Let cool on pan, to keep their shape. They crumble a bit when you eat them, but I somewhat enjoy that.
+
+I keep mine in a glass container and eat them for breakfast, snack, and second breakfast. Yeah. That's a thing.
 
 Bake well,
 </br> **Sarah Kay**
