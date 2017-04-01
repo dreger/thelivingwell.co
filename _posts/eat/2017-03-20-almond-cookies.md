@@ -44,6 +44,6 @@ Let cool on pan, to keep their shape. They crumble a bit when you eat them, but 
 
 I keep mine in a glass container and eat them for breakfast, snack, and second breakfast. Yeah. That's a thing.
 
-Bake well,
-</br> **Sarah Kay**
+Bake well,</br>
+ **Sarah Kay**
 
