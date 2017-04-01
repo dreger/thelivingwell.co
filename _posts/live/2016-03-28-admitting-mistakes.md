@@ -2,7 +2,7 @@
 title: "practicing imperfection: admitting mistakes"
 asset: "false" 
 category: live
-published: True
+published: false
 ---
 I make mistakes all. the. time.
 
