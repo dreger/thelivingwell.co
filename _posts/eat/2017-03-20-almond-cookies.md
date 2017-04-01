@@ -39,7 +39,7 @@ They are decadent. And, they resemble a traditional chocolate chip cookie. These
 </br> Use your hands to roll them into one inch balls. They dough will stick upon compression.
 </br> Place balls on cookie sheet, and lightly dimple the top with your thumb.
 
-Bake at 350 for 5-7 minutes or until brown. You dont want to bake them too long, as the moisture will leave them quickly.
+Bake at 350 for 5-7 minutes or until lightly brown. You dont want to bake them too long, as the moisture will leave them quickly.
 Let cool on pan, to keep their shape. They crumble a bit when you eat them, but I somewhat enjoy that.
 
 I keep mine in a glass container and eat them for breakfast, snack, and second breakfast. Yeah. That's a thing.
