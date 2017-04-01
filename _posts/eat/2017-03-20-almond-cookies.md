@@ -15,7 +15,7 @@ To balance my PCOS diagnosis, I generally stick to a lower carb/high fat meal pl
 
 Enter: Almond cookies.
 
-They are decadent. And, they resemble a traditional chocolate chip cookie. These ones don't taste like almond, per se. But you could sub out the vanilla extract, for almond extract and I bet those would be divine.
+They are decadent. And, they resemble a traditional chocolate chip cookie. These ones don't taste like almond, per se. But you could sub out the vanilla extract, for almond extract and I bet those would be divine. Also, I bet subbing butter for coconut oil would make them taste more like a traditional cookie. But I prefer the health-profile of coconut oil for my fat intake.
 
 **Stats:** Roughly 125 calories per cookie (almonds are high calorie, but oh so good for you.)
 </br> 11grams Fat / 4grams Carb / 3grams Protein
