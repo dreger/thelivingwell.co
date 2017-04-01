@@ -2,7 +2,7 @@
 title: "grain gains"
 asset: "recipe" 
 category: eat
-published: true
+published: false
 ---
 
 I have a hard time hitting my daily carb quota in a clean way. Veggies aren’t exactly high-carb. So I’ve been trying to come up with satisfying, filling, and clean ways to eat my carbs and I landed on grains.
