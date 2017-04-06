@@ -16,14 +16,14 @@ Contentment, afterall, is the root of happiness. It starts by accepting ourselve
 How can we practice contentment in our daily life? While I am still learning how to practice Santosha on a daily basis, I think it starts with these three principles: Presence, Gratitude, and Goodness. 
 
 **Presence**
-To enter into a life of contentment, we must be fully present. When we spend too much time re-hashing the past, or worrying about the future, we miss the opportunity to embrace what the present moment has to offer. 
+<br>To enter into a life of contentment, we must be fully present. When we spend too much time re-hashing the past, or worrying about the future, we miss the opportunity to embrace what the present moment has to offer. 
 
 One of the most profound statements I took from my yoga teacher training, is written by Baron Baptiste in his book Journey into Power: “You are either now here, or nowhere.” Both words comprised of the same letters, mean two entirely different things. The past is a memory, and the future is a fantasy; neither of which are a place. We are either _now here,_ fully engaged in the present moment, or we are _no where_ at all. 
 
 Being present requires me to listen a bit more, and look at my phone less. A short meditation is a great tool to help practice presence and mindfulness. Whatever being present looks like for you, it is the first step towards contentment. 
 
 **Gratitude**
-Once we are fully present, we can start to bend our heart towards gratitude. Practicing gratitude on a daily basis has allowed me to see everything in life as a gift, rather than a given.
+<br>Once we are fully present, we can start to bend our heart towards gratitude. Practicing gratitude on a daily basis has allowed me to see everything in life as a gift, rather than a given.
 
 
 Gratitude starts with being grateful for ourself; our body, our circumstances, and everything we inhabit. Gratitude for self means we do not compare ourselves to anyone else. The phrase “Comparison is the thief of joy” rings true when trying to practice contentment.  Wherever we are in our own journey, is exactly where we are meant to be. Best of all, once we start to appreciate ourselves, we can foster a deeper appreciation for those around us.
@@ -32,7 +32,7 @@ Gratitude starts with being grateful for ourself; our body, our circumstances, a
 An easy way to practice gratitude, is to write it down. I keep a notebook with a list of things I am thankful for. Every day (with a mug of coffee in hand) I make time to write down a few things. From eyes to see, to warm fuzzy sock; when we pause long enough to look around, gratitude can be found in simple things.
 
 **Goodness**
-Once we are present and full of gratitude, it becomes easy to live a life of goodness. What I mean by this is, being good to ourselves and to others. If we are thankful for ourselves and others, our natural inclination will be to act out of goodness.
+<br>Once we are present and full of gratitude, it becomes easy to live a life of goodness. What I mean by this is, being good to ourselves and to others. If we are thankful for ourselves and others, our natural inclination will be to act out of goodness.
 
 Being good to ourselves starts with checking our inner dialogue: Do we speak kindly to ourselves, or heap on shame and criticism? I am quick to criticize myself, and it leaves me with a spirit that is quick to look critically at others. When I practice speaking truth and love over myself, I find it overflowing into how I think and speak about those around me. Speaking more kindly to ourselves, and others, is a great way to bring goodness into the world.
 
@@ -47,4 +47,4 @@ May you find contentment, both on, and off your mat in 2017.
 **Namaste,**
 <br>Sarah
 
-Originally published on [YogaQuota's Blog](http://www.yogaquota.com/blog/3-ways-to-find-santosha-happiness)
+_Originally published on [YogaQuota's Blog](http://www.yogaquota.com/blog/3-ways-to-find-santosha-happiness)_
