@@ -2,7 +2,7 @@
 title: "finding santosha"
 asset: "namaste" 
 category: live
-published: false
+published: true
 ---
 
 The Niyama’s, or observances, are the second of the 8 limbs of yoga. The niyama of Santosha, is a sanskrit term meaning, contentment or satisfaction.
