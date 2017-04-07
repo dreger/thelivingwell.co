@@ -5,9 +5,9 @@ category: live
 published: true
 ---
 
-Everything about my life feels perfect. I’ve never had a season like this before. And I find myself feeling guilty. Certainly, it's not fair for my life to be this abundantly rich. 
+Everything about my life feels perfect. I’ve never had a season like this before. And I find myself feeling guilty. 
 
-No, not when there is so much suffering around me. I keep waiting for the other shoe to drop. I keep looking for the "but.."
+Certainly, it's not fair for my life to be this abundantly rich. No, not when there is so much suffering around me. I keep waiting for the other shoe to drop. I keep looking for the "but.."
 
 The interesting thing is, my life is not perfect. I've been managing chronic back pain. I am an entire ocean away from friends and family. I am still navigating how to live with infertility. I have heavy things on my shoulders, yet the load feels anything but. 
 
