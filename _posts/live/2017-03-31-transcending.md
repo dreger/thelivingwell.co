@@ -13,9 +13,11 @@ The interesting thing is, my life is not perfect. I've been managing chronic bac
 
 I wasn't always this way. Infact, I used to wear suffering as a badge of honor. I’ve only recently learned how to [let go of past pain.](http://thelivingwell.co/be/let-go) I thought having some kind of pain or drama, was the unifier of all humanity. I believed if I wasn’t operating from pain, I wasn’t actually alive. **But the thing about pain is, you can be fully awake to it, without being led by it.** 
 
-I want to spend the energy of my life being led by my spirit, not my wounds. Since my spirit was made for joy and not pain, joy is where I begin. I see the world with fresh expectancy every morning. The simplicity of flowers blooming, and the gift of steady breath, each thing becomes a love letter written just for me. My soul collects each one, keeping them tucked close to my heart. 
+I want to spend the energy of my life being led by my spirit, not my wounds. Since my spirit was made for joy and not pain, joy is where I begin.
 
-_And when the world around you looks like a letter of love, joy abounds._ When my heart is joy-full, it becomes my greatest gift to give it away.
+I see the world with fresh expectancy every morning. The simplicity of flowers blooming, and the gift of steady breath, each thing becomes a love letter written just for me. My soul collects each one, keeping them tucked close to my heart. 
+
+_And when the world around you looks like a letter of love, joy can abound._ 
 
 I've found a few rhythms that help me foster joy. 
 
@@ -25,9 +27,9 @@ I've found a few rhythms that help me foster joy.
 
 **3 //** Spirit walk. On my day off, I take a walk through the more park-like setting of our town. I get out in nature. My phone is on do not disturb, and I listen to a meditation podcast or worship music. I intentionally keep my mind present. I don’t run through my mental to-do list or rehash a conversation. It's my time to connect with Holy Spirit, through presence and nature.  
 
-When we fix our eyes on God, life gets good. In doing so, I have finally started to transcend circumstances. My well of joy runs deep and steady, regardless of present suffering. I transcend the pain, because I know in the marrow of my bones, it’s only temporary.
+_When we fix our eyes on our creator instead of our circumstances, life gets good._
 
-I transcend pain, not because I have silenced it. I transcend it because I have sat with it, listened to it, and allowed myself to grow from it. 
+My well of joy runs deep and steady, regardless of present suffering. I transcend the pain, because I know in the marrow of my bones, it’s only temporary. I transcend pain, not because I have silenced it. I transcend it, because I have sat with it, listened to it, and allowed myself to grow from it. 
 
 _Pain is the seed of the tree, not the leaves that grow._
 
