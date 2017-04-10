@@ -17,7 +17,9 @@ I want to spend the energy of my life being led by my spirit, not my wounds. Sin
 
 I recently stumbled upon a quote that stopped me dead in my tracks: _the grass is greener wherever you water it._
 
-Boom. Joy grows when we take time to cultivate it. I've found a few rhythms that help me foster joy. 
+Boom. Joy grows when we take time to cultivate it. We have to practice inviting joy in, and then make soul-space for it to stay.
+
+I've found a few rhythms that help me foster joy. 
 
 **1 //** I keep a gratitude journal. I write down everything from the blue sky, to profound spiritual moments of clarity. I pen it all down in a notebook. Sometimes I can only think of two things, other days I write down 20. When I hit 1000, I start a new notebook. It takes me a year to get there, and it's usually right around Thanksgiving that I begin a new one. This rhythm allows me to practice receiving joy in every single thing.
 
