@@ -27,11 +27,9 @@ Here are a few rhythms that help me operate from joy and not pain:
 
 **3 //** Spirit walk. On my day off, I take a walk through the more park-like setting of our town. I get out in nature. My phone is on do not disturb, and I listen to a meditation podcast or worship music. I intentionally keep my mind present. I don’t run through my mental to-do list or rehash a conversation. It's my time to connect with Holy Spirit, through presence and nature.  
 
-_When we fix our eyes on our creator instead of our circumstances, life gets good._
+Now, I see the world with fresh expectancy every morning. The simplicity of flowers blooming, and the gift of steady breath, each thing becomes a love letter written just for me. My soul collects each letter, and I keep them close to my heart. 
 
-Now, I see the world with fresh expectancy every morning. The simplicity of flowers blooming, and the gift of steady breath, each thing becomes a love letter written just for me. My soul collects each one, keeping them tucked close to my heart. 
-
-_And when the world around you looks like a letter of love, joy can abound._ 
+_When the world around you looks like a letter of love, joy can abound._ 
 
 My well of joy runs deep and steady, regardless of present suffering. I transcend the pain, because I know in the marrow of my bones, it’s only temporary. I transcend pain, not because I have silenced it. I transcend it, because I have sat with it, listened to it, and allowed myself to grow from it. 
 
