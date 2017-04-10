@@ -19,7 +19,7 @@ I see the world with fresh expectancy every morning. The simplicity of flowers b
 
 _And when the world around you looks like a letter of love, joy can abound._ 
 
-I've found a few rhythms that help me foster joy. 
+I've found a few rhythms that help me foster joy. Afterall, the grass is greener wherever you water it.
 
 **1 //** I keep a gratitude journal. I write down everything from the blue sky, to profound spiritual moments of clarity. I pen it all down in a notebook. Sometimes I can only think of two things, other days I write down 20. When I hit 1000, I start a new notebook. It takes me a year to get there, and it's usually right around Thanksgiving that I begin a new one. This rhythm allows me to practice receiving joy in every single thing.
 
