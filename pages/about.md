@@ -1,6 +1,6 @@
 ---
 layout: page
-asset: 'aboutme1'
+asset: '2015headshot'
 permalink: /about/
 category: about
 ---
