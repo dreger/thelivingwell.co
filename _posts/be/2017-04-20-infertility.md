@@ -14,9 +14,7 @@ For most women, it's relatively easy to answer:
 <br>When we pay off debt.
 <br> When we feel God prompt us.
 
-The _when_ of it, is seemingly in their hands.
-
-I don't know what this is like,
+The _when_ of it, is seemingly in their hands. I don't know what that's like.
 
 My answer to this question, is a shoulder shrug. Sometimes when I'm feeling real cheeky, I am inclined to say "when sperm meets egg." But some audiences don't appreciate that sort of biological humor. And since most people ask because they genuinely want to know, a smart-ass remark doesn't seem the most gracious. 
 
