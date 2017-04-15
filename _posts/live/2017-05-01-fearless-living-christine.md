@@ -7,7 +7,7 @@ published: false
 
 Kicking off my #fearisnottheboss series with a dear friend, Christine. She and I know each other through friends that are more like family. So by extension, she's family too. She's a busy mama, workin on her dream job of being an interior designer. Follow her over at [Christine Mccall Home](https://christinemccallhome.com/) I mean come on, isn't that business name just dreamy??
 
-# "[Christine McCall Home](https://christinemccallhome.com/) was created to document the interior styling of our [new home](https://christinemccallhome.com/our-home/) and what inspires me along the way. I am a wife, mama, marketing creative, and resident homebody. I reside in Pittsburgh, PA with my husband Matt, son Ryder, and pups Lewie and Briggs. You’ll most likely find me chasing my toddler down Target aisles in black yoga leggings and a pair of kicks." #
+## "[Christine McCall Home](https://christinemccallhome.com/) was created to document the interior styling of our [new home](https://christinemccallhome.com/our-home/) and what inspires me along the way. I am a wife, mama, marketing creative, and resident homebody. I reside in Pittsburgh, PA with my husband Matt, son Ryder, and pups Lewie and Briggs. You’ll most likely find me chasing my toddler down Target aisles in black yoga leggings and a pair of kicks." ##
 
 **As a kid, what did you want to be when you grew up?**
 
