@@ -1,8 +1,13 @@
-
+---
+title: "ending the desire to acquire"
+asset: "acquire" 
+category: live
+published: false
+---
 
 My husband and I moved across the world in 4 suitcases. 2 each, with a carry-on bag and backpack. Everything I use, wear, or look at on a daily basis, can fit within the contents of my luggage. Everything from khaki pants to kitchen pots, I can pack it all up within one hour.
 
-I didn’t always live this way. Before we moved, I had a hard time deciding what I would bring. Admittedly, I cried about it once or twice. Leaving behind all of my kitchen mugs felt like giving a puppy up for adoption. I hated it. My coffee mugs made me smile. Not only because they served as my caffeine delivery vehicle, but these mugs held stories, each one of them. I could recall the person who bought it for me, or the woman who drank from it while crying in my living room. They held seasons and stories, these ceramic vessels. I tried convincing my husband that mugs were indeed, worthy of taking up my precious cargo space. I ended up bringing two. 
+I didn’t always live this way. Before we moved abroad, I had a hard time deciding what I would bring. Admittedly, I cried about it once or twice. Leaving behind all of my kitchen mugs felt like giving a puppy up for adoption. I hated it. My coffee mugs made me smile. Not only because they served as my caffeine delivery vehicle, but these mugs held stories, each one of them. I could recall the person who bought it for me, or the woman who drank from it while crying in my living room. They held seasons and stories, these ceramic vessels. I tried convincing my husband that mugs were indeed, worthy of taking up my precious cargo space. I ended up bringing two. 
  
 Why mugs? I’ve asked myself the question, too. My morning routine (now) includes a steaming matcha latte. It accompanies my writing, reading, and meditation. I center into the present moment and the cup warms my hands with a hug. This is my space where I come into joy and presence. Its an experience.
 
