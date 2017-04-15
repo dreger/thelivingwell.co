@@ -20,7 +20,7 @@ My answer to this question, is a shoulder shrug. Sometimes when I'm feeling real
 
 To be honest, I haven't found a way to talk about it yet. It's not easy to explain, because my answer is: _I don't know._
 
-I deal with infertility, in the form of [PCOS.](http://www.pcosaa.org/) For some women, a life-style change and medication can lead to a succesful pregnancy. And then, there are many of us who have tried everything with no luck. I know atleast a dozen women who live in my boat, and its estimated that 10 million women worldwide live with PCOS. Each with a varying degree of the same diagnosis. And each of us are routinely told the same thing: you have a lot of options. 
+I deal with infertility, in the form of [PCOS.](http://www.pcosaa.org/) For some women, a life-style change and medication can lead to a succesful pregnancy. And then, there are many of us who have tried everything with no luck. I know atleast a dozen women who live in my boat, and its estimated that 10 million women worldwide live with PCOS. Each with a varying degree of the same diagnosis. And each of us are routinely told the same thing: _you have a lot of options._ 
 
 I know I have options. I also know the odds aren't overwhelmingly in my favor, and most cost more money than we have. When people learn about my condition, they immediately ask about the options. "What does your doctor say? Have you tried this diet? This supplement? Have you considered IVF? You can always adopt..."
 
