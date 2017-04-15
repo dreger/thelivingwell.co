@@ -42,9 +42,9 @@ Its true, just about every month someone else I know gets pregnant. And if I can
 
 But it doesn't change what I know to be true: **my life will not be less-full, if I am child-less.** And I remind myself to come back to the gift of the present moment.
 
-#Joy comes in the tender moments where I let go of expectations, and recieve what is right in front of me.
+_Joy comes in the tender moments where I let go of expectations, and recieve what is right in front of me._
 
-This is my first time writing about infertility, and I don't intend to stop. I want to change the conversation from fixing to feeling. We are more than our diagnosis, and we are not defined by our lack. 
+This is my first time writing about infertility, and I don't intend to stop. I want to change the conversation from fixing to feeling. Because we are more than our diagnosis. We are not defined by our lack. 
 
 When you're navigating inevitable pain and uncertaintly, sometimes all you need is someone to ask "how is it with your soul?" 
 
