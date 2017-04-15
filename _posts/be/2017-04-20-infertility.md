@@ -16,15 +16,15 @@ For most women, it's relatively easy to answer:
 
 The _when_ of it, is seemingly in their hands. I don't know what that's like.
 
-My answer to this question, is a shoulder shrug. Sometimes when I'm feeling real cheeky, I am inclined to say "when sperm meets egg." But some audiences don't appreciate that sort of biological humor. And since most people ask because they genuinely want to know, a smart-ass remark doesn't seem the most gracious. 
+My answer to this question is a shoulder shrug. Sometimes when I'm feeling real cheeky, I am inclined to say "when sperm meets egg." But some audiences don't appreciate that sort of biological humor. And since most genuinely want to know, a smart-ass remark doesn't seem the most gracious. 
 
 To be honest, I haven't found a way to talk about it yet. It's not easy to explain, because my answer is: _I don't know._
 
 I deal with infertility, in the form of [PCOS.](http://www.pcosaa.org/) For some women, a life-style change and medication can lead to a succesful pregnancy. And then, there are many of us who have tried everything with no luck. I know atleast a dozen women who live in my boat, and its estimated that 10 million women worldwide live with PCOS. Each with a varying degree of the same diagnosis. And each of us are routinely told the same thing: _you have a lot of options._ 
 
-I know I have options. I also know the odds aren't overwhelmingly in my favor, and most cost more money than we have. When people learn about my condition, they immediately ask about the options. "What does your doctor say? Have you tried this diet? This supplement? Have you considered IVF? You can always adopt..."
+I know I have options. I also know the odds are expensive and not overwhelmingly in my favor. When people learn about my condition, they immediately ask about the options. "What does your doctor say? Have you tried this diet? This supplement? Have you considered IVF? You can always adopt..."
 
-I get it, I do. Its hard to make sense of something so complicated, and so under-discussed. Understanding my diagnosis through the lens of what can be done, and how it can be fixed seems easier to digest. 
+I get it, I do. Its hard to make sense of something so complicated, and so under-discussed. Understanding my diagnosis through the lens of what can be done and how it can be fixed, seems easier to digest. 
 
 I spend my days planning meals, calculating levls of nutrients and monitoring how my body responds. When I visit the doctor we talk numbers and hormones. Its always about the fixing. Always about what more I could be doing, or foods I should be trying. 
 
