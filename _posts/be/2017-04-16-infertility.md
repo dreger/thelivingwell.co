@@ -1,6 +1,6 @@
 ---
 title: "honest infertility"
-asset: "filename of image (assumes a .jpg extension)" 
+asset: "yellow2" 
 category: be
 published: false
 ---
