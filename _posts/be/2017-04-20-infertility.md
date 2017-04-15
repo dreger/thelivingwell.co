@@ -38,11 +38,11 @@ It's not that I don't want children. I do. After all, mentoring is what I love. 
 
 I feel this way right now, because I don't feel entitled to anything in this life. Everything is a gift, not a given. The minute I start thinking of things in terms of what I _should_ have by now, the joy leaves.
 
-Its true, just bout every month someone else I know gets pregnant. And if I can be brutally honest here? I hope I can. Sometimes my heart can't celebrate the way I know it should. The joy feels tinged by my own "why not me?" pain.
+Its true, just about every month someone else I know gets pregnant. And if I can be brutally honest here? I hope I can. Sometimes **my heart can't celebrate the way I know it should.** The joy feels tinged by my own "why not me?" pain.
 
 But it doesn't change what I know to be true: **my life will not be less-full, if I am child-less.** And I remind myself to come back to the gift of the present moment.
 
-_Joy comes in the tender moments where I let go of expectations, and recieve what is right in front of me._
+##_Joy comes in the tender moments where I let go of expectations, and recieve what is right in front of me._##
 
 This is my first time writing about infertility, and I don't intend to stop. I want to change the conversation from fixing to feeling. We are more than our diagnosis, and we are not defined by our lack. 
 
