@@ -31,10 +31,10 @@ _There’s something special about making your home feel like your home. From th
 
 **How do you cope when comparison creeps in?**
 
-_There’s a quote I came across recently through [TheEveryGirl.com](TheEveryGirl.com) that has really resonated with me in regards to this topic. 
+_There’s a quote I came across recently through [TheEveryGirl.com](TheEveryGirl.com) that has really resonated with me in regards to this topic._
 
 ## “Don’t compare your beginning to someone else’s middle.” ##
-Erica Gellerman, Small Business Consultant. 
+-Erica Gellerman, Small Business Consultant. 
 
 _I feel like I recite this message to myself on a daily basis. With the rise of social media, our work and the work of others has become so accessible. It’s both a blessing and a curse. My head often becomes so crowded with beautiful design work, I find myself doubting what I know and overwhelmed with how much more I have to learn. It’s at this point that I disconnect, take a deep breath, and remind myself where I am in my individual journey._
 
