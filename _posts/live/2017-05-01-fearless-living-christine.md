@@ -25,15 +25,15 @@ _Simultaneously, I was building a life with my new husband. We were living in ou
 
 **When/why did you start pursuing what you're doing now?**
 
-_For the next two years, my creative energy was stalled. My entire focus was on our little boy. And that was okay. I got to experience motherhood ALL IN and it was life-changing. During that time, we also made the move from Cleveland to Pittsburgh to be closer to family. Once settled into our new life, I still wasn’t really doing anything with my own. And my son had become a self-sufficient human - walking, talking, potty trained, etc. I decided it was time to do something for myself. Which is also okay. Can we all agree on HOW OKAY THIS REALLY IS??? So, I made the decision to channel my creativity energy within a new medium and immersed myself in decorating our new home. _
+_For the next two years, my creative energy was stalled. My entire focus was on our little boy. And that was okay. I got to experience motherhood ALL IN and it was life-changing. During that time, we also made the move from Cleveland to Pittsburgh to be closer to family. Once settled into our new life, I still wasn’t really doing anything with my own. And my son had become a self-sufficient human - walking, talking, potty trained, etc. I decided it was time to do something for myself. Which is also okay. Can we all agree on HOW OKAY THIS REALLY IS??? So, I made the decision to channel my creativity energy within a new medium and immersed myself in decorating our new home._
 
-_There’s something special about making your home feel like your home. From the fresh paint to the new furniture and home accents. The personal touches make you feel safe, comfortable and content. Needless to say, the walls of this home have left me inspired. My creative spirit reignited. So much so, in May of 2016, I created an Instagram feed to document the interior styling of our new home. I’ve since branched out on additional social media platforms, created a blog, took an interior design class, and am currently designing spaces for friends and family. Pinch me, now. _
+_There’s something special about making your home feel like your home. From the fresh paint to the new furniture and home accents. The personal touches make you feel safe, comfortable and content. Needless to say, the walls of this home have left me inspired. My creative spirit reignited. So much so, in May of 2016, I created an Instagram feed to document the interior styling of our new home. I’ve since branched out on additional social media platforms, created a blog, took an interior design class, and am currently designing spaces for friends and family. Pinch me, now._
 
 **How do you cope when comparison creeps in?**
 
 _There’s a quote I came across recently through [TheEveryGirl.com](TheEveryGirl.com) that has really resonated with me in regards to this topic. 
 
-# “Don’t compare your beginning to someone else’s middle.” #
+## “Don’t compare your beginning to someone else’s middle.” ##
 Erica Gellerman, Small Business Consultant. 
 
 _I feel like I recite this message to myself on a daily basis. With the rise of social media, our work and the work of others has become so accessible. It’s both a blessing and a curse. My head often becomes so crowded with beautiful design work, I find myself doubting what I know and overwhelmed with how much more I have to learn. It’s at this point that I disconnect, take a deep breath, and remind myself where I am in my individual journey._
