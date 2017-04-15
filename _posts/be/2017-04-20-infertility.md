@@ -6,7 +6,6 @@ published: false
 ---
 
 If you were to ask me "when are you having kids?" I would probably have a strong desire to punch you. It's nothing personal, honest. I just hate this question. For most women, it's relatively easy to answer. 
-
 <br>When we have a house. 
 <br>When we are this age. 
 <br>When we pay off debt.
