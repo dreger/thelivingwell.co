@@ -42,9 +42,9 @@ Its true, just about every month someone else I know gets pregnant. And if I can
 
 But it doesn't change what I know to be true: **my life will not be less-full, if I am child-less.** And I remind myself to come back to the gift of the present moment. I come back to _just being._
 
-_Joy comes in the tender moments where I let go of expectations, and recieve what is right in front of me._
+_Joy comes in the tender moments where I let go of expectations, and receive what is right in front of me._
 
-When you're navigating inevitable pain and uncertaintly, sometimes all you need is someone to ask "how is it with your soul?" And then, we hold safe the space for one another to speak. _Thats how we breathe a little living into each other's dark days._
+When you're navigating inevitable pain and uncertainty, sometimes all you need is someone to ask "how is it with your soul?" And then, we hold safe the space for one another to speak. _Thats how we breathe a little living into each other's dark days._
 
 We give one another the space to feel, and then? We get to _just be._
 
