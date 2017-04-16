@@ -48,9 +48,7 @@ What's the best gift we can give one another while navigating pain and uncertain
 
 Sometimes all we need is someone to ask "how is it with your soul?" And then, we hold safe the space for one another to speak. _Thats how we breathe a little living into each other's dark days._
 
-We give one another the space to feel, and then? We get to _just be._
-
-Today is about the living.
+Today is about the living. Today, you can just be.
 
 honestly,
 <br>Sarah Kay
