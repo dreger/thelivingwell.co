@@ -28,7 +28,7 @@ I get it, I do. Its hard to make sense of something so complicated, and so under
 
 I spend my days planning meals, calculating levels of nutrients and monitoring how my body responds. When I visit the doctor we talk numbers and hormones. Its always about the fixing. Always about what more I could be doing, or foods I should be trying. 
 
-But here's the problem: _Conversations that focus on fixing instead of feeling, prohibit healing._ **Because fixing, isn't the same as healing.** And if the conversations are always about fixing and doing, it doesnt leave room for us to heal and _just be._
+But here's the problem: # _Conversations that focus on fixing instead of feeling, prohibit healing._ # **Because fixing, isn't the same as healing.** And if the conversations are always about fixing and doing, it doesnt leave room for us to heal and _just be._
 
 You probably don't hear a lot of women talk about infertility. Its not that we don't want to. Largely, even the most well-intentioned conversations just don't feel free. _They feel fixated on fixing._ They limit the space where I can speak freely about the range of emotions and seasons that accompany infertility.
 
@@ -51,6 +51,6 @@ Sometimes all we need is someone to ask "how is it with your soul?" And then, we
 Today is about the living. Today, you can just be.
 
 honestly,
-<br>Sarah Kay
+<br>**Sarah Kay**
 
 _The first post in this series: honest infertility._
