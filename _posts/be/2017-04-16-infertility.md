@@ -46,7 +46,7 @@ _Joy comes in the tender moments where I let go of expectations, and receive wha
 
 What's the best gift we can give one another while navigating pain and uncertainty? **The freedom to just be.**
 
-Sometimes all we need is someone to ask "how is it with your soul?" And then, we hold safe the space for one another to speak. _Thats how we breathe a little living into each other's dark days._
+Sometimes all we need is someone to ask "how is it with your soul?" And then, we hold safe the space for one another to speak. Wild and free and without judgement, we allow each other to fully live, when they can freely speak. _Thats how we breathe a little living into each other's dark days._
 
 Today is about the living. Today, you can just be.
 
