@@ -2,7 +2,7 @@
 title: "ending the desire to acquire"
 asset: "acquire" 
 category: live
-published: false
+published: true
 ---
 
 My husband and I moved across the world in 4 suitcases. 2 each, with a carry-on bag and backpack. Everything I use, wear, or look at on a daily basis, can fit within the contents of my luggage. Everything from khaki pants to kitchen pots, I can pack it all up within one hour.
@@ -19,17 +19,20 @@ Hot beverages are an experience. Perhaps why my mugs aren’t just things to me,
 
 Minimalism is a trendy word these days. Waves of people are stepping back from blind consumerism, in an effort to claim a more balanced way of living. There are TV shows documenting people moving into tiny houses, fitting whatever they can into 200 square-feet of space. There is a desire bubbling, a movement even, of people who want to have less and experience more.
 
-I too, find it to be an appealing way to live. Historically, I love a good closet purge.I might even be too zealous when it comes to purging things I have little use for. I’ve never been the sentimental type when it comes to possessions (except for mugs.) And even though I love to clear clutter, I still found myself accumulating stuff. I always “needed” whatever was adorable in the Target dollar section. Which, let’s be serious, is everything. I was a sucker for sales, regardless of whether I actually needed another cotton t-shirt. It was THREE DOLLARS for crying out loud. 
+I too, find it to be an appealing way to live. Historically, I love a good closet purge. I might even be too zealous when it comes to purging things I have little use for. I’ve never been sentimental when it comes to possessions (except for mugs.) And even though I love to clear clutter, I still found myself accumulating stuff. I always “needed” whatever was adorable in the Target dollar section. Which, let’s be serious, is everything. I was a sucker for sales, regardless of whether I actually needed another cotton t-shirt. It was THREE DOLLARS for crying out loud. 
 
+Then we started packing to move. I had to evaluate each item for its worth and meaning. Clothing was easy to pair down. Though, choosing between all of my yoga leggings did feel a bit like choosing a favorite child. Then the mugs. I selected two that were handmade by potters I knew. They were form and function, experience and story. I selected a few glass jars I loved to look at. I rationalized, they could be used a variety of ways; kitchen storage, blooming buds or housing desk-top pens. Form and function.
 
-Then, we started packing to move. I had to evaluate each item for its worth and meaning. Clothing proved to be easy to pair down. Though, choosing between all of my yoga leggings did feel a bit like choosing a favorite child. I made peace with it by telling myself “It’s not goodbye. It’s just, see you later.”
+I noticed a pattern in the items I selected. I loved them for the way they looked, and the purpose they served. _Not a single thing existed just to occupy space in my life._ I finally let go of my desire to acquire.
 
-Then the mugs. I selected two that were handmade by potters I knew. They were form and function, experience and story. I selected a few glass jars I loved to look at. I rationalized, they could be used a variety of ways; kitchen storage, blooming buds or housing desk-top pens. Form and function.
+We have this way of filling the spaces in our lives. We fill silence with words, houses with stuff, and hearts with clutter. We fill the space and hold on tight – to things, places, and people. We pack everything in, leaving no breathing room around the edges.
 
-I noticed a pattern in the items I selected. I loved them for the way they looked, and the purpose they served. _Not a single thing existed just to occupy space in my life._
+But what if we made space, and then let it be? What if we swept the caverns of our heart and soul, and left some holy, empty space? A place where there is room to breathe into and out of things and seasons and people. Room to receive and to let go. Open heart, open hands.
 
-I have always viewed Aparigraha (Non attachment) as, not being attached to the effort of my outcomes, or any of the things I hold dear. More recently, I have started to apply non-attachment on the front end of my habits. Instead of an isolated event whereby I declare “I don’t need this stuff” I am diligent to not acquire in the first place.
+Because if we leave some room around the edges, and leave hope for bigger possibilities, _who knows what unspeakable joy might enter in?_
 
-**I have become detached from the desire to acquire.** 
+acquiring less,
+**Sarah Kay**
+
 
 
