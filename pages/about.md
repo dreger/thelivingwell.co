@@ -6,9 +6,9 @@ category: about
 ---
 
 <div class="card about" markdown="1">
-#Welcome to the living well.#
+# Welcome to the living well.#
 
-Hi. I'm Sarah Kay.
+Hi. _I'm Sarah Kay._
 
 I am certain I already love the heck outta you, but in case you're still unsure about me, here are some <s>fun</s>
 real facts:
@@ -35,7 +35,7 @@ I am new to the conversation on dismantling white privilege, and I am sorry for 
 
 
 
-#Why living well?#
+# Why living well? #
 
 I spent years trying on everyone else's plan for living well, only to find myself tripping over routines too big and dreams too small. Fed up with failure, I started taking risks and stopped caring about what other people thought. When I began living in ways that made other people uncomfortable, I finally felt at home in my own life.
 
