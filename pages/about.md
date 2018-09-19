@@ -6,7 +6,6 @@ category: about
 ---
 
 <div class="card about" markdown="1">
-# Welcome to the living well. #
 
 Hi. _I'm Sarah Kay._
 
