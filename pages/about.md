@@ -13,27 +13,25 @@ Hi. I'm Sarah Kay.
 I am certain I already love the heck outta you, but in case you're still unsure about me, here are some <s>fun</s>
 real facts:
 
-I'm a writer, and spend most days convincing myself I actually am.
+I'm a writer, but I still have to convince myself I actually am.
 
-I'm a wild and free spirit, secure in my place as a daughter of the King.
+I’m a recovering perfectionist. I used to live a life of falsehoods. Sometimes, I still do.
 
-I practice and teach yoga as a union of mental, physical, and spiritual health. 
+I am a follower of Jesus. The radically inclusive Jesus, that is.
 
-I'm a recovering perfectionist. I used to live a life of falsehoods. Sometimes, I still do.
+I am snobby about my coffee, and I don’t intend on changing.
 
-I like to doodle letters and drink coffee. A lot of coffee. Sometimes it makes my left eye twitch.
+Truth-telling is hard for me, because I fear rejection.
 
-I'm in love with a PhD chemist. Our 5-year-and-counting marriage is beautiful because it knows ugly. 
+I seek marginalized people; the felon, the refugee, and the addict alike.
 
-I don't like pants, unless they are yoga pants. And Husband says those don't even count as pants. 
+Before Oliver, I dealt with infertility.
 
-I bear the pain of infertility. Though, if I am completely honest, I don't always *feel* it. 
+I don’t like pants, unless they are yoga pants. Oh, I’m a yoga instructor.
 
-I currently live in Oxford, England. It is magic here.
+I like interior design. I work for an architecture and design firm as my “day-job.”
 
-Truth-telling is hard for me, because I fear rejection. 
-
-I am wild about marginalized people. The felon, the refugee, the loner. You can all sit with me. 
+I am new to the conversation on dismantling white privilege, and I am sorry for the 30 years I spent ignorant to it
 
 
 
@@ -47,6 +45,4 @@ It's why I write. The vulnerable space frees me to live my best life, and hopefu
 
 There's such grace in living well. 
 
-
-**Want to get in touch? Subscribe to my monthly newsletter. You'll also get free things. Not kidding.**
 </div>
